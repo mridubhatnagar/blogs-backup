@@ -40,7 +40,8 @@ share it with the community or not.
 - Optimize for one thing at a time.
 - Purpose of starting the blog is to get better at writing. Let go of the itch to build.
 - Don't compare. It's a trap. 
-- Don't worry and occupy your mind with platform-related things.
+- Don't worry and do not occupy your mind with platform-related things.
+- Remove anything that increases friction in your writing workflow.
 
 **✍️ Only one single-minded focus is to Write. **
 
