@@ -17,10 +17,10 @@ Asking developer friends which platform to write your blog on is the same as ask
 ## **Available Options**
 
 
-- dev.to
-- medium
-- hashnode
-- Ghost
+- [dev.to](https://dev.to/)
+- [Medium](https://medium.com/)
+- [Hashnode](https://hasnode.com/)
+- [Ghost](https://ghost.com/)
 - [Pelican](https://blog.getpelican.com/)
 - [Hugo](https://gohugo.io/)
 -  [Gatsby](https://www.gatsbyjs.com/) 
