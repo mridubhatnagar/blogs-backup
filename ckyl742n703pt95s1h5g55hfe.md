@@ -55,7 +55,7 @@ share it with the community or not.
 
 ## 🤓 **Why I decided to write this post?** 
 
-When next time my mind plays the game of switching the platform. This post will 
+When next time my mind plays the trick to switch the platform. This post will 
 be a reminder of why I started.
 
 🤔 Did you also face the same problem? How did you decide on your platform? 
