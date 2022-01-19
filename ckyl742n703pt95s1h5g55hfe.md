@@ -14,7 +14,9 @@ The more blogs you visit, the more ideas you get. As a result, my own blog seeme
 
 - #### **Developer Bias**
 
-Asking developer friends which platform to write your blog on is the same as asking them which programming language is a good first programming language. Lot of bias leads to analysis paralysis.
+Asking developer friends which platform to write your blog on is the same as asking them which programming language is a good first programming language? 
+
+Lot of bias leads to analysis paralysis.
 
  
 ## **Available Options**
