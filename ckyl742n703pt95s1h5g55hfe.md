@@ -5,13 +5,14 @@ Have been wanting to make it a practice to consistently write. Before even start
 ## 😕 **Why the confusion?** 
 
 
-1. #### **More options more confusion. Period.**
+- #### **More options more confusion. Period.**
 
 For years I optimized for building. Spent a lot of time figuring out should I build the platform from scratch, or maybe use a CMS, use Hugo because the themes looked cool and many other friends were using it, then thought of Pelican as it was Python-based and I could customize it if needed. 
 
 The more blogs you visit, the more ideas you get. As a result, my own blog seemed to be less good than the rest. Ironically, the metric for comparison was never the quality of writing instead the look and feel of the blog. 
 
-2. #### **Developer Bias**
+
+- #### **Developer Bias**
 
 Asking developer friends which platform to write your blog on is the same as asking them which programming language is a good first programming language. Lot of bias leads to analysis paralysis.
 
