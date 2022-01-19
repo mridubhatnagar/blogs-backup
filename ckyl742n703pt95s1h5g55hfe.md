@@ -14,11 +14,12 @@ The more blogs you visit, the more ideas you get. As a result, my own blog seeme
 
 
 - dev.to
-- medium.com
-- hashnode.com
+- medium
+- hashnode
 - Ghost
-- Pelican
-- Hugo
+- [Pelican](https://blog.getpelican.com/)
+- [Hugo](https://gohugo.io/)
+-  [Gatsby](https://www.gatsbyjs.com/) 
 
 ## **Why Hashnode?**
 
