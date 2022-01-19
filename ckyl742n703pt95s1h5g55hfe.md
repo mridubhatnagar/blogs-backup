@@ -31,12 +31,12 @@ Asking developer friends which platform to write your blog on is the same as ask
 ## **Why Hashnode?**
 
 
-- **Platform** - It is pre-built. I don't have to invest my time in building or fixing the platform. Time in hand is finite.
+- **Platform** - It is pre-built. You don't have to invest your time in building or fixing the platform. Time in hand is finite.
 
-- **Community** - Community already exists. I have the option to decide either to 
-share it with the community or not.
+- **Community** - Community already exists. You have the option to decide either to 
+share your write up with the community or not.
 
-- **Blogs Backup** - Backup of all the published blogs is available on my personal Github. No data loss.  And, making it easy to migrate in the future if needed.   
+- **Blogs Backup** - Backup of all the published blogs is available on your personal Github. No data loss.  And, making it easy to migrate in the future if needed.   
 
 - **Distraction free** - Distraction free interface
 
