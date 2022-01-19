@@ -1,6 +1,6 @@
 ## Deciding the Blogging Platform
 
-Have been wanting to make it a practice to consistently write. Before even starting to write. Always a lot of time went by in deciding the ideal platform. This led to procrastination. I started on platforms like Dev. to, Ghost, Medium. Struggled to continue and stopped. 
+Have been wanting to make it a practice to consistently write. Before even starting to write. Always a lot of time has gone by in deciding the ideal platform. This led to procrastination. I started on platforms like Dev. to, Ghost, Medium. Struggled to continue and stopped. 
 
 ## 😕 **Why the confusion?** 
 
@@ -47,7 +47,8 @@ share it with the community or not.
 
 ## 🤓 **Why I decided to write this post?** 
 
-When next time my mind tricks me to switch the platform. This post will be a reminder of why I started.
+When next time my mind plays the game of switching the platform. This post will 
+be a reminder of why I started.
 
 🤔 Did you also face the same problem? How did you decide on your platform? 
 
