@@ -11,10 +11,10 @@ For years I optimized for building. Spent a lot of time figuring out should I bu
 
 The more blogs you visit, the more ideas you get. As a result, my own blog seemed to be less good than the rest. Ironically, the metric for comparison was never the quality of writing instead the look and feel of the blog. 
 
-
 2. #### **Developer Bias**
 
 Asking developer friends which platform to write your blog on is the same as asking them which programming language is a good first programming language. Lot of bias leads to analysis paralysis.
+
  
 ## **Available Options**
 
