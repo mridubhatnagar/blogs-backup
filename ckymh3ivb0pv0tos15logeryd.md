@@ -36,7 +36,7 @@ I wish heaven had a phone call
  
 And, I could ask Are you doing alright?
 
-Your daughter has grown up now.
+Your daughter has grown up now.  I have accepted what has happened.
 
 20 days of putting the strong face forward and not breaking down. I have lump in the throat as I write this. 🙏🏻
 
