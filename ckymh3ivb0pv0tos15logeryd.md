@@ -10,7 +10,7 @@ It was sudden. All it took was 5 days for life to turn upside down.
 
 ![WhatsApp Image 2022-01-07 at 9.56.02 PM.jpeg](https://cdn.hashnode.com/res/hashnode/image/upload/v1642648927958/LflFz_-Ko.jpeg)
 
-Since the beginning of the pandemic, I'm home. I got 2 years to live with him. Life is Short.  
+Since the beginning of the pandemic, I'm home. I got 2 years to live with him. Life is Short.  Now, that I reflect upon it. Good that I was not miles apart living in a different country. I could see him for one last time.
 
 We had this habit of having dinner together. We used to wait for him to come home and only then we used to have dinner. There is no one to wait for now. The doorbell doesn't ring. We don't excitedly rush to open the door anymore.
 
