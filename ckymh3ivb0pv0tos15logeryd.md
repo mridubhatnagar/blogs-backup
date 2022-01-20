@@ -1,6 +1,6 @@
 ## Loss of a Parent
 
-I'm fortunate to be born in a family which raised kids equally irrespective of gender, gave full freedom to take our decisions on our own. I was never scolded for low grades. And, they didn't compare my performance with that of other kids. My parents gave me everything I could have ever asked for. Loss of freedom is one thing I fear when I think about the next stage in life. As girls don't have the privilege of living with their own parents and eventually it is the home that gets changed. 
+I come from a humble background. I'm fortunate and proud that my parents raised both me and my brother equally irrespective of gender, gave us full freedom to take our decisions on our own. I was never scolded for low grades. And, they didn't compare my performance with that of other kids. My parents gave me everything I could have ever asked for. Loss of freedom is one thing I fear when I think about the next stage in life. As girls don't have the privilege of living with their own parents and eventually it is the home that gets changed. 
 
 On 17th December my father left for his usual work visit to meet dealers present in different cities. And, strangely so there was no return. I had heard stories about deaths in the '50s. I considered such events to be rare events. I had the good fortune of seeing my paternal and maternal grandparents. I never accepted the likelihood that early death can happen in the family too. You don't really have any control over events that happen to you. He was merely 55 years and we lost him on December 28.
 
@@ -28,7 +28,7 @@ He wanted me to go abroad for my Master's. I personally knew given the financial
 
 He had one wish - to visit another country. And, all this while I kept thinking and planning when I make big in life. I'll take my parents and we'll visit a new country.  The wish is unfulfilled. God had some other plans. Life has been tough for us. And, any kind of travel for relaxation. Is a luxury we never had.
 
-Every time he used to get admitted. Maa used to rush to the hospital. And, after couple of days both used to return. This time when Maa left. She told us expect 7 days atleast. None of us knew this time instead of both of them returning home. Only 1 returned.
+Every time he used to get admitted. Maa used to rush to the hospital. And, after a couple of days both used to return. This time when Maa left. She told us to expect 7 days at least. None of us knew this time instead of both of them returning home. Only 1 returned.
 
 Lot many conversations are still left to be done. 
 
@@ -38,7 +38,7 @@ And, I could ask Are you doing alright?
 
 Your daughter has grown up now.  I have accepted what has happened.
 
-20 days of putting the strong face forward and not breaking down. I have lump in the throat as I write this. 🙏🏻
+20 days of putting the strong face forward and not breaking down. I have a lump in the throat as I write this. 🙏🏻
 
 ![WhatsApp Image 2022-01-20 at 9.48.31 AM.jpeg](https://cdn.hashnode.com/res/hashnode/image/upload/v1642652464161/NnP-Wy7gR.jpeg)
 This is him with Raghu Raman. Well-known Dainik Bhaskar columnist.
