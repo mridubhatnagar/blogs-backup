@@ -34,6 +34,10 @@ I wish heaven had a phone call
  
 And, I could ask Are you doing alright?
 
+Maa and bhai are doing fine. I'll handle the rest.
+
+20 days of putting the strong face forward and not breaking down. I have lump in the throat as I write this. 🙏🏻
+
 ![WhatsApp Image 2022-01-20 at 9.48.31 AM.jpeg](https://cdn.hashnode.com/res/hashnode/image/upload/v1642652464161/NnP-Wy7gR.jpeg)
 This is him with Raghu Raman. Well-known Dainik Bhaskar columnist.
 
