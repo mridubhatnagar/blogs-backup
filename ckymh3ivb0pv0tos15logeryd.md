@@ -37,4 +37,3 @@ And, I could ask Are you doing alright?
 ![WhatsApp Image 2022-01-20 at 9.48.31 AM.jpeg](https://cdn.hashnode.com/res/hashnode/image/upload/v1642652464161/NnP-Wy7gR.jpeg)
 This is him with Raghu Raman. Well-known Dainik Bhaskar columnist.
 
-
