@@ -26,6 +26,8 @@ He knew what to talk about. So, that I would get irritated. They would make fun 
 
 He wanted me to go abroad for my Master's. I personally knew given the financial situation. It was not possible. Still, every time he used to say "Who has asked you to worry about the money?"
 
+Days when I lacked confidence or faced rejection. He made sure to give support and confidence. "It's okay. It happens."
+
 He had one wish - to visit another country. And, all this while I kept thinking and planning when I make big in life. I'll take my parents and we'll visit a new country.  The wish is unfulfilled. God had some other plans. Life has been tough for us. And, any kind of travel for relaxation. Is a luxury we never had.
 
 Every time he used to get admitted. Maa used to rush to the hospital. And, after a couple of days both used to return. This time when Maa left. She told us to expect 7 days at least. None of us knew this time instead of both of them returning home. Only 1 returned.
@@ -39,6 +41,7 @@ And, I could ask Are you doing alright?
 Your daughter has grown up now.  I have accepted what has happened.
 
 20 days of putting the strong face forward and not breaking down. I have a lump in the throat as I write this. 🙏🏻
+
 
 ![WhatsApp Image 2022-01-20 at 9.48.31 AM.jpeg](https://cdn.hashnode.com/res/hashnode/image/upload/v1642652464161/NnP-Wy7gR.jpeg)
 This is him with Raghu Raman. Well-known Dainik Bhaskar columnist.
