@@ -20,7 +20,7 @@ I always saw him on his toes. Every day at 9:00 AM you could see him in his offi
 
 Irrespective of which country or which IPL teams match it is. My father and brother used to excitedly watch the full match. Be it a boundary or wicket. He used to shout in excitement. Neither can I hear his excited voice nor can I see him. 
 
-The doctors had advised him not to drive. I use to take him on the two-wheeler and go places. Throughout our journey, he used to keep teasing me. It was fun to fight. We used to laugh. Everything has become silent now.
+The doctors had advised him not to drive. I use to take him on the two-wheeler and go places. Throughout our journey, he used to keep teasing me. It was fun to fight. We used to laugh. Everything has become silent now. No one sits behind me. It is empty. I cannot feel the presence.
 
 He knew what to talk about. So, that I would get irritated. They would make fun of me and together we used to laugh. Marriage used to be the topic we used to fight on. Whom to fight with now?
 
