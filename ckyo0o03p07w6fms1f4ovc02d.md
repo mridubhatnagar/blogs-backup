@@ -32,10 +32,10 @@ I think the number of lives you impacted is not an excel sheet metric. It is "Ho
 
 My father earned people.
 
-If you are reading this. And, you were connected to him in any way and have anything to share about him. My DM's are open, phone is on. I am happy to listen to what you have to say. :) 
+If you are reading this. And, you were connected to him in any way and have anything to share about him. My DM's are open, the phone is on. I am happy to listen to what you have to say. 😊
 
 
-
+I repeat. Earn People, build Relationships. Be there through thick and thin. 
                 
 
  
