@@ -55,7 +55,7 @@ Hanuman Chalisa, Maha-Mratuyanjay, Shabad, Sai Baba Arti. You can ask me if ther
 
 Any discussion related to marriage. Used to result in a fun fight. 3 of them used to team up against me. My argument being, I got the education to lead a life on my own terms. Strong and Independent has been my priority. They were supportive of that. Probably in a world where girls are married as soon as they graduate. I am at a different place. I am where I am because of them.
 
-While I fought, still fight. I won't give in. She might have thought together they might someday discuss it. In my absence. That day didn't come. She is worried and wants me to think about the next thing in life. Life throws you in weird situations.   
+While I fought, still fight. I won't give in. She might have thought together they might someday discuss it. In my absence. That day didn't come. She is worried and wants me to think about the next thing in life. Life throws you in weird situations. I know right.
 
 My capacity to fight is not what it was when my father and grandfather were here. Making it big in life still remains the primary goal. As confident and courageous as mentor to say the least. Not here to settle.
 
