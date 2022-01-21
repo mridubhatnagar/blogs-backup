@@ -44,7 +44,13 @@ It ain't as easy as getting busy with your own things. If getting busy and clock
 You can tell get back to work to a 26 yr old. My friend, explaining loss to a 20yr is very different. Explaining him destiny is difficult. And, if it is destiny why the hell are we day and night putting in efforts for a better tomorrow? I think it is a fair question to have.
 Maa is still in a very fragile state. Hospital experiences are traumatic, to say the least. I remember her words. "Doctors had given up, but how could I give up? I wanted to try every medicine possible till the very end." I had no words.
 
-My father's younger brother was there too throughout. On his return ended up telling my grandmother "Maa... I went to the hospital when papa was admitted. I was there when bhaisaab got admitted. Still, I could bring home none."     
+My father's younger brother was there too throughout. On his return ended up telling my grandmother "Maa... I went to the hospital when papa was admitted. I was there when bhaisaab got admitted. Still, I could bring home none." 
+
+Maa has become extra protective of us. Delay in coming then our said time worries her. Where are we going? With whom are we going? When will we be back?
+
+We were never late-night party animals. A home that accepted us to get in by 11 PM and used to just keep calling us meanwhile to ensure our safety has an in-time now. 7 PM has started feeling too late to her.
+
+Hanuman Chalisa, Maha-Mratuyanjay, Shabad, Sai Baba Arti. You can ask me if there is anything left. I have played all to find solace.      
 
 Everyone else who reached out and I haven't mentioned. Thank you for checking in.
 
