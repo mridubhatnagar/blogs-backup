@@ -1,7 +1,7 @@
 ## Earn People, Build Relationships 
 continued.
 
-Those who know me might also know that I refrain from showing my emotional side. I hold myself back from hugging anyone. Be it hopping places, living alone. Never shed a teardrop. 
+On the 27th night, I was on a call with a friend. I was explaining her condition is critical. And, how hopeless I was. I had given up that night. She gave me hope. I broke down on call. She patiently made sure to listen. On 28th December morning, I was hopeful of recovery. I was doing my regular morning activities. In my own zone. I was back home. I opened the door. The world had fallen apart. 
 
 Well, this time the tables had turned. One after the other when everyone was coming. Rule #1 still remained the same. Be strong, not to break down. For the first time in my life, I hugged people tight. Ears were open to listening to what they had to say. Amid all of this. I was trying to find strength, words of encouragement. Hands down, hugs 
 are magical. 
