@@ -23,7 +23,7 @@ I had no expectations. And, probably never thought that I will get to learn to h
 
 I have experienced loss before. But, I never experienced it from this close.
 
-Back in 2017, I started my first internship. My father came along with me to drop me in Bangalore. He accompanied me to my first workplace. Met my colleagues there. When those colleagues saw this news. They reached out. They shared how they still remember that meeting and how that conversation is still fresh in their minds. They still have his business card. I smiled wide ear to ear. Because why not, I didn't anticipate this too. I don't work at the same place anymore. I'm in touch, but I'm not in constant touch. Still, they remember.  
+Back in 2017, I started my first internship. My father came along to drop me in Bangalore. He accompanied me to my first workplace. Met my colleagues there. When those colleagues saw this news. They reached out. They shared how they still remember that meeting and how that conversation is still fresh in their minds. They still have his business card. I smiled wide ear to ear. Because why not, I didn't anticipate this too. I don't work at the same place anymore. I'm in touch, but I'm not in constant touch. Still, they remember.  
 
 A lot of folks from my college personally reached out. The ones I talked with, the ones I lost touch with.  My own batch, the batch senior to me. I know it must have been equally difficult for you all to reach out. And more because you too would have thought what should we say? I read all your messages. Thank you for reaching out. All gestures of kindness mean a lot. ❤️ 
 
