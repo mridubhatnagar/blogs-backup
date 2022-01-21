@@ -27,9 +27,9 @@ Back in 2017, I started my first internship. My father came along to drop me in 
 
 A lot of folks from my college personally reached out. The ones I talked with, the ones I lost touch with.  My own batch, the batch senior to me. I know it must have been equally difficult for you all to reach out. And more because you too would have thought what should we say? I read all your messages. Thank you for reaching out. All gestures of kindness mean a lot. ❤️ 
 
-Friends who are far apart with regards to distance. Where a phone call away.
+Friends who are far apart with regards to distance. Were a phone call away.
 
-In my short career so far. My team gave me the time to process it. To live through it. Checked-in on me. Took the time out to call me. Pinged me and told me to let them know in case I need someone to talk to. 
+In my short career so far. My current team gave me the time to process it. To live through it. Checked-in on me. Took the time out to call me. Pinged me and told me to let them know in case I need someone to talk to. 
 
 Living through this experience has also taught me what to do when someone else goes through the same pain. Listen to them. Give no advice. If you can, give them confidence.
 
@@ -39,14 +39,18 @@ When fathers are around. No one pokes you in your matters. Random uncle aunty qu
 
 Life changes.
 
-It ain't as easy as getting busy with your own things. If getting busy and clocking 80+ hours a day is only the goal. How are we different from machines? 
-You can tell get back to work to a 26 yr old. My friend, explaining loss to a 20yr is very different. Maa is still in a very fragile state. Hospital experiences are traumatic, to say the least. I remember her words. "Doctors had given up, but how could I give up? I wanted to try every medicine possible till the very end." I had no words.
+It ain't as easy as getting busy with your own things. If getting busy and clocking 80+ hours a day is the only goal. How are we different from machines? 
+You can tell get back to work to a 26 yr old. My friend, explaining loss to a 20yr is very different. Explaining him destiny is difficult. And, if it is destiny why the hell are we day and night putting in efforts for a better tomorrow? I think it is a fair question to have.
+Maa is still in a very fragile state. Hospital experiences are traumatic, to say the least. I remember her words. "Doctors had given up, but how could I give up? I wanted to try every medicine possible till the very end." I had no words.
 
-My father's younger brother was there too throughout. On his return ended up telling to my grandmother "I went to the hospital when papa was admitted. I was there when bhaisaab got admitted. Still, I could bring home none."     
+My father's younger brother was there too throughout. On his return ended up telling my grandmother "Maa... I went to the hospital when papa was admitted. I was there when bhaisaab got admitted. Still, I could bring home none."     
 
 Everyone else who reached out and I haven't mentioned. Thank you for checking in.
 
 Not sure what good did I do to deserve the warmth and help, or it is sympathy out of the situation that has led to this. I assume good intent.
+
+I penned the experience down so that memory does not fade away. I am not interested in rushing through life either. The man who gave his life earning respect, building relationships, living for others, upbringing his kids. He does not deserve to be forgotten the very next day. Because his daughter got busy with life. 
+  
 
 Life from here on is all onwards and upwards. 
 
