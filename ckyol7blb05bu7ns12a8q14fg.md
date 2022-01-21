@@ -19,7 +19,7 @@ Late evening that day we got on a call. He listened to what I had to share, shar
 
 Grief and pain is such a weird state that probably not everyone might be able to feel what you are going through. It ain't as easy as going neck-deep into the work and avoiding the situation altogether. I think it had to be embarrassed. 
 
-I had no expectations. And, probably never thought that I will get to learn to handle this life situation as well from the mentor. It was too kind of him to call. That one call helped me live through this. I was also glad that he acknowledged the fact that all this is really tough. Having an elder more experienced person as your friend, mentor whatever you name it. Greatly helps. Their worldview is different than yours and as I curious kid I get to learn a lot.  
+I had no expectations. And, probably never thought that I will get to learn to handle this life situation as well from the mentor. It was too kind of him to call. That one call helped me live through this. I was also glad that he acknowledged the fact that all this is really tough. Having an elder more experienced person as your friend, mentor whatever you name it. Greatly helps. Their worldview is different than yours and like a curious kid, I get to learn a lot.  
 
 I have experienced loss before. But, I never experienced it from this close.
 
