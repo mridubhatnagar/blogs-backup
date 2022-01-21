@@ -63,7 +63,9 @@ My capacity to fight is not what it was when my father and grandfather were here
 
 Maa has started to question her own timeline. There was a time when both of them gave us confidence. It has reversed now. Every now and then I have to remind her brighter things lie ahead. I'll be able to do it. We'll be able to do it.
 
-Maa doesn't like getting on the call, narrating the same things to many. What happened, how did it happen? She doesn't want to recall. She is living in a cocoon. Talking to only near and dear ones.          
+Maa doesn't like getting on the call, narrating the same things to many. What happened, how did it happen? She doesn't want to recall. She is living in a cocoon. Talking to only near and dear ones.
+
+In families, there is no replacement for loss. There is only a reshuffling of responsibilities. The onus is on me for a lot of things. You learn to cope and live with the loss. There is no reverse. Well, this also reminds me how come people address their social media connections as a family? Is your team your family? How long are you going to live with the loss? On social media, you probably won't even recognize when someone goes silent.           
 
 Everyone else who reached out and I haven't mentioned. Thank you for checking in.
 
