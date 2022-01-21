@@ -28,6 +28,8 @@ He connected well with people his age, my age, and everyone in between. Many loo
 
 When his phone was handed over to me. I was scrolling through his phone. Some messages were "Hi Sir, aap kaise hai? Call kr lu aapko. Aapse baat karni thi, advice leni thi?". I don't know how to respond to his students who were waiting for his response. It all happened so quickly that I fear his students don't even know. And, the number of students were so many that I don't know who they are.
 
+He helped many start their career. Students used to call and take behavorial interview tips from him.
+
 His student's success and friend's success was his success. His happiness was in others' happiness. I would often hear "You know, my student has made it to this company.", "My friends, kid attended my online session today", "My HP colleague has turned into an author.", "This friend has now become a VP". "My brother works with the TATA group". I mean I could just go on and on. 
 
 For him his network was everything.
