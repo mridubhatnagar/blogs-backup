@@ -1,5 +1,7 @@
 ## Earn People, Build Relationships
 
+
+
 Some months back I remember asking my father "Why do you keep calling and checking in on people. When no one calls you?"
 
 He didn't answer it then. Around exactly 30 days later. l found the answer the hardest way. Standing right there at the cremation ground. I had no expectations from anyone. My mind had gone blank. I was touched by what I saw. People showed up. 
@@ -20,11 +22,18 @@ He recently joined a new job. His team members came home. "Since, the time he jo
 
 He connected well with people his age, my age, and everyone in between. Many looked up to him as their mentor. Careers are long. For a good enough time he operated on the intersection of industry and academia. Gave countless training. His students use to reach out to him for advice. He had no office hours. Whenever you call, he would happily help. I have also seen the days when 5-10 of his students use to come to our home randomly saying "Sir hai, sir se milna hai?"
 
+
+
+![WhatsApp Image 2022-01-21 at 12.00.45 PM (1) (1).jpeg](https://cdn.hashnode.com/res/hashnode/image/upload/v1642747237303/6JjgzbZkDO.jpeg)
+
 When his phone was handed over to me. I was scrolling through his phone. Some messages were "Hi Sir, aap kaise hai? Call kr lu aapko. Aapse baat karni thi, advice leni thi?". I don't know how to respond to his students who were waiting for his response. It all happened so quickly that I fear his students don't even know. And, the number of students were so many that I don't know who they are.
 
 His student's success and friend's success was his success. His happiness was in others' happiness. I would often hear "You know, my student has made it to this company.", "My friends, kid attended my online session today", "My HP colleague has turned into an author.", "This friend has now become a VP". "My brother works with the TATA group". I mean I could just go on and on. 
 
 For him his network was everything.
+
+
+![WhatsApp Image 2022-01-21 at 12.01.20 PM (1).jpeg](https://cdn.hashnode.com/res/hashnode/image/upload/v1642747151787/poJ43C6h5.jpeg)
 
 The time when he had to be suddenly rushed to the hospital. Every relative was just a call away. Within hours there were around 10 people right there. When they bought him home. All of them came along with the ambulance. 
 
