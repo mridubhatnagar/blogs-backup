@@ -40,6 +40,7 @@ When fathers are around. No one pokes you in your matters. Random uncle aunty qu
 Life changes.
 
 It ain't as easy as getting busy with your own things. If getting busy and clocking 80+ hours a day is the only goal. How are we different from machines? 
+
 You can tell get back to work to a 26 yr old. My friend, explaining loss to a 20yr is very different. Explaining him destiny is difficult. And, if it is destiny why the hell are we day and night putting in efforts for a better tomorrow? I think it is a fair question to have.
 Maa is still in a very fragile state. Hospital experiences are traumatic, to say the least. I remember her words. "Doctors had given up, but how could I give up? I wanted to try every medicine possible till the very end." I had no words.
 
