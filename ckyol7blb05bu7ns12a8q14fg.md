@@ -33,7 +33,7 @@ In my short career so far. My current team gave me the time to process it. To li
 
 Living through this experience has also taught me what to do when someone else goes through the same pain. Listen to them. Give no advice. If you can, give them confidence.
 
-I'm habitual to living alone. However, when with the family. Knowing that parents are around you can sleep at peace. Fathers are protective shields. The initial couple of days at night were tough. A slight noise at night, I would wake up.
+I'm habitual of living alone. However, when with the family. Knowing that parents are around you can sleep at peace. Fathers are protective shields. The initial couple of days at night were tough. A slight noise at night, I would wake up.
 
 When fathers are around. No one pokes you in your matters. Random uncle aunty questioning your call on marriage are way too less. As I say it, tables have turned now. 
 
