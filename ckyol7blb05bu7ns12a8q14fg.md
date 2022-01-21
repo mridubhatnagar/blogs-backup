@@ -35,11 +35,11 @@ Living through this experience has also taught me what to do when someone else g
 
 I'm habitual to living alone. However, when with the family. Knowing that parents are around you can sleep at peace. Fathers are protective shields. The initial couple of days at night were tough. A slight noise at night, I would wake up.
 
-When fathers are around. No one pokes you in your matters. Random uncle aunty questioning your call on marriage are way too less.
+When fathers are around. No one pokes you in your matters. Random uncle aunty questioning your call on marriage are way too less. As I say it, tables have turned now. 
 
 Life changes.
 
-It ain't as easy as getting busy with your own things. If getting busy and clocking 80+ hours a day is only the goal. How are we different from machines?
+It ain't as easy as getting busy with your own things. If getting busy and clocking 80+ hours a day is only the goal. How are we different from machines? You can tell this to a 26 yr old. My friend, explaining loss to a 20yr is very different. Maa is still in a very fragile state.  
 
 Everyone else who reached out and I haven't mentioned. Thank you for checking in.
 
