@@ -39,7 +39,10 @@ When fathers are around. No one pokes you in your matters. Random uncle aunty qu
 
 Life changes.
 
-It ain't as easy as getting busy with your own things. If getting busy and clocking 80+ hours a day is only the goal. How are we different from machines? You can tell this to a 26 yr old. My friend, explaining loss to a 20yr is very different. Maa is still in a very fragile state.  
+It ain't as easy as getting busy with your own things. If getting busy and clocking 80+ hours a day is only the goal. How are we different from machines? 
+You can tell get back to work to a 26 yr old. My friend, explaining loss to a 20yr is very different. Maa is still in a very fragile state. Hospital experiences are traumatic, to say the least. I remember her words. "Doctors had given up, but how could I give up? I wanted to try every medicine possible till the very end." I had no words.
+
+My father's younger brother was there too throughout. On his return ended up telling to my grandmother "I went to the hospital when papa was admitted. I was there when bhaisaab got admitted. Still, I could bring home none."     
 
 Everyone else who reached out and I haven't mentioned. Thank you for checking in.
 
