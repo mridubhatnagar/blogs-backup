@@ -45,6 +45,8 @@ If you are reading this. And, you were connected to him in any way and have anyt
 
 
 I repeat. Earn People, build Relationships. Be there through thick and thin. 
+
+On this note, a heartfelt thank you. I'm humbled by the gesture.
                 
 
  
