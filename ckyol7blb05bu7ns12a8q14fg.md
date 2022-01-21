@@ -15,7 +15,7 @@ and I ended up emailing. I was touched by reading his response. "Mridu... try to
 
 2 days passed. On the third day, we had to go to the same place. Collect the ashes and go for doing the final rites. I was heading back from there and was on road. To my surprise, a WhatsApp message dropped "Had been wanting to talk to you. Let me know when can I call you?" 
 
-Late evening that day we got on a call. He listened to what I had to share, shared his tale. Coincidentally, our stories turned out to be similar. He could empathize with my situation. Happiness shared gets doubled. Pain and sorrow shared gets reduced. 
+Late evening that day we got on a call. He listened to what I had to share, shared his tale. Coincidentally, our stories turned out to be similar. He could empathize with my situation. Happiness shared gets doubled. Pain and sorrow shared get reduced. 
 
 Grief and pain is such a weird state that probably not everyone might be able to feel what you are going through. It ain't as easy as going neck-deep into the work and avoiding the situation altogether. I think it had to be embarrassed. 
 
@@ -59,7 +59,10 @@ While I fought, still fight. I won't give in. She might have thought together th
 
 My capacity to fight is not what it was when my father and grandfather were here. Making it big in life still remains the primary goal. As confident and courageous as mentor to say the least. Not here to settle.
 
-Maa has started to question her own timeline. There was a time when both of them gave us confidence. It has reversed now. Every now and then I have to remind her brighter things lie ahead. I'll be able to do it. We'll be able to do it.          
+Maa has started to question her own timeline. There was a time when both of them gave us confidence. It has reversed now. Every now and then I have to remind her brighter things lie ahead. I'll be able to do it. We'll be able to do it.
+
+Maa doesn't like getting on the call, narrating the same things to many. What happened, how did it happen? She doesn't want to recall. She is living in a cocoon. Talking to only near and 
+dear ones.          
 
 Everyone else who reached out and I haven't mentioned. Thank you for checking in.
 
