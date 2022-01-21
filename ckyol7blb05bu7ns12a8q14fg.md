@@ -6,7 +6,7 @@ Those who know me might also know that I refrain from showing my emotional side.
 Well, this time the tables had turned. One after the other when everyone was coming. Rule #1 still remained the same. Be strong, not to break down. For the first time in my life, I hugged people tight. Ears were open to listening to what they had to say. Amid all of this. I was trying to find strength, words of encouragement. Hands down, hugs 
 are magical. 
 
-We were short of time. We were told to do things as early as possible because the body had started to deteriorate. Parents had raised us equally. But, society doesn't work that way. There were people stopping me from giving the shoulder support, stopping from going to the cremation ground. When at the cremation ground, I was asked not to see the pyre. Well, I did everything I was stopped from doing and I am quite satisfied with that.
+We were short of time. We were told to do things as early as possible because the body had started to deteriorate. Parents had raised us equally. But, society doesn't work that way. There were people stopping me from giving the shoulder support, stopping from going to the cremation ground. When at the cremation ground, I was asked not to see the pyre. Well, I did everything I was stopped from doing. I am quite satisfied with that.
 
 I was still processing it all. Same day evening school friends showed up. They were there with me. To listen to what I had to say.  Them showing up relieved me. I had nothing to talk about but mere presence can make you feel better in tough times.
 
