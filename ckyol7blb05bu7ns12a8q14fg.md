@@ -25,6 +25,8 @@ I have experienced loss before. But, I never experienced it from this close.
 
 Back in 2017, I started my first internship. My father came along to drop me in Bangalore. He accompanied me to my first workplace. Met my colleagues there. When those colleagues saw this news. They reached out. They shared how they still remember that meeting and how that conversation is still fresh in their minds. They still have his business card. I smiled wide ear to ear. Because why not, I didn't anticipate this too. I don't work at the same place anymore. I'm in touch, but I'm not in constant touch. Still, they remember.  
 
+July of 2013 it was. When the eye issue hadn't come up he was allowed to drive. He was super happy to drive his brother's Scorpio from Gurgaon to Neemrana to drop me off at the campus. Post that I never called him. As I wanted to do a lot many things on my own. :') Looks like I took that saying to my heart "Engineer toh sb hote hai. Engineering toh sb default hi kartey hai". Result of this. That neither did I go, nor did I invite them to attend the graduation ceremony. The only thing I told him was. Forget the degree. A professor ensured that I am employable. When I exit the college gate.
+
 A lot of folks from my college personally reached out. The ones I talked with, the ones I lost touch with.  My own batch, the batch senior to me. I know it must have been equally difficult for you all to reach out. And more because you too would have thought what should we say? I read all your messages. Thank you for reaching out. All gestures of kindness mean a lot. ❤️ 
 
 Friends who are far apart with regards to distance. Were a phone call away.
@@ -61,8 +63,7 @@ My capacity to fight is not what it was when my father and grandfather were here
 
 Maa has started to question her own timeline. There was a time when both of them gave us confidence. It has reversed now. Every now and then I have to remind her brighter things lie ahead. I'll be able to do it. We'll be able to do it.
 
-Maa doesn't like getting on the call, narrating the same things to many. What happened, how did it happen? She doesn't want to recall. She is living in a cocoon. Talking to only near and 
-dear ones.          
+Maa doesn't like getting on the call, narrating the same things to many. What happened, how did it happen? She doesn't want to recall. She is living in a cocoon. Talking to only near and dear ones.          
 
 Everyone else who reached out and I haven't mentioned. Thank you for checking in.
 
