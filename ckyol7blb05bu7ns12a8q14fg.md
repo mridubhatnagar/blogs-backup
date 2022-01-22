@@ -25,8 +25,6 @@ I have experienced loss before. But, I never experienced it from this close.
 
 Back in 2017, I started my first internship. My father came along to drop me in Bangalore. He accompanied me to my first workplace. Met my colleagues there. When those colleagues saw this news. They reached out. They shared how they still remember that meeting and how that conversation is still fresh in their minds. They still have his business card. I smiled wide ear to ear. Because why not, I didn't anticipate this too. I don't work at the same place anymore. I'm in touch, but I'm not in constant touch. Still, they remember.  
 
-July of 2013 it was. When the eye issue hadn't come up. He was allowed to drive. He was super happy to drive his brother's Scorpio from Gurgaon to Neemrana to drop me off at the campus. Post that I never called him on the campus. As I wanted to do a lot many things on my own. :') Looks like I took that saying to my heart "Engineer toh sb hote hai. Engineering toh sb default hi kartey hai". Result of this. That neither did I go, nor did I invite them to attend the graduation ceremony. The only thing I told him was. Forget the degree. A professor ensured that I am employable. When I exit the college gate.
-
 A lot of folks from my college personally reached out. The ones I talked with, the ones I lost touch with.  My own batch, the batch senior to me. I know it must have been equally difficult for you all to reach out. And more because you too would have thought what should we say? I read all your messages. Thank you for reaching out. All gestures of kindness mean a lot. ❤️ 
 
 Friends who are far apart with regards to distance. Were a phone call away.
@@ -55,7 +53,7 @@ We were never late-night party animals. A home that accepted us to get in by 11 
 
 Hanuman Chalisa, Maha-Mratuyanjay, Shabad, Sai Baba Arti. You can ask me if there is anything left. I have played all to find solace.
 
-Any discussion related to marriage. Used to result in a fun fight. 3 of them used to team up against me. My argument being, I got the education to lead a life on my own terms. Strong and Independent has been my priority. They were supportive of that. Probably in a world where girls are married as soon as they graduate. I am at a different place. I am where I am because of them.
+Any discussion related to marriage. Used to result in a fun fight. 3 of them used to team up against me. Strong and Independent first has been my priority.
 
 While I fought, still fight. I won't give in. She might have thought together they might someday discuss it. In my absence. That day didn't come. She is worried and wants me to think about the next thing in life. Life throws you in weird situations. I know right.
 
@@ -63,7 +61,7 @@ Maa has started to question her own timeline. There was a time when both of them
 
 Maa doesn't like getting on the call, narrating the same things to many. What happened, how did it happen? She doesn't want to recall. She is living in a cocoon. Talking to only near and dear ones.
 
-In families, there is no replacement for loss. There is only a reshuffling of responsibilities. The onus is on me for a lot of things. You learn to cope and live with the loss. There is no reverse. Well, this also reminds me how come people address their social media connections as a family? Is your team your family? How long are you going to live with the loss? On social media, you probably won't even recognize when someone goes silent.           
+In families, there is no replacement for loss. There is only a reshuffling of responsibilities. The onus is on me for a lot of things. You learn to cope and live with the loss. There is no reverse. 
 
 Everyone else who reached out and I haven't mentioned. Thank you for checking in.
 
