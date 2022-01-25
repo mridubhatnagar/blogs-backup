@@ -67,7 +67,7 @@ Everyone else who reached out and I haven't mentioned. Thank you for checking in
 
 Not sure what good did I do to deserve the warmth and help, or it is sympathy out of the situation that has led to this. I assume good intent.
 
-I penned the experience down so that memory does not fade away. I am not interested in rushing through life either. The man who gave his life earning respect, building relationships, living for others, upbringing his kids. He does not deserve to be forgotten the very next day. Because his daughter got busy with life. 
+I penned the experience down so that memory does not fade away. I am not interested in rushing through life either. The man who gave his life earning respect, building relationships, living for others, upbringing his kids. He does not deserve to be forgotten the very next day. 
   
 
 Life from here on is all onwards and upwards. 
