@@ -1,4 +1,4 @@
-## Book Gist: I Came Upon a Lighthouse by Shantanu Naidu
+## January Read: I Came Upon a Lighthouse by Shantanu Naidu (Book Gist)
 
 I came upon a Lighthouse by Shantanu Naidu. Is a short memoir of his life with Mr. Ratan N TATA.  
 
