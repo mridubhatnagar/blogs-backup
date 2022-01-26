@@ -43,6 +43,6 @@ As much as I value the parents. I value the mentor. Quite fortunate and grateful
 
 If mentorship as a subject interests you. You might also enjoy books **Tuesdays with Morrie** and **The Last Lecture**.
 
-Ps: This might be a slightly biased because I found it the process to be very relatable. To my own journey. How it started, and how it has progressed. 
+Ps: This might be a slightly biased because I found the process to be very relatable. To my own journey. How it started, and how it has progressed. 
 
 Happy Reading !!!      
