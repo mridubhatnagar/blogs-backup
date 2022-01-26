@@ -2,7 +2,7 @@
 
 I came upon a Lighthouse by Shantanu Naidu. Is a short memoir of his life with Mr. Ratan N TATA.  
 
-How did they meet for the first time? How with time friendship, mentorship between the two of them evolved? 
+How did they meet for the first time? How with time friendship, mentorship between the two of them evolved? Professional relationship between the two? What work Shantanu gets to do from the Founder's office? His travel experiences with the man himself?
 
 
 ![WhatsApp Image 2022-01-26 at 1.35.18 PM.jpeg](https://cdn.hashnode.com/res/hashnode/image/upload/v1643190343184/Vnh59MPtr.jpeg)
