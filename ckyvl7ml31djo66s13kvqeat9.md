@@ -1,4 +1,4 @@
-## Book Gist: I came upon a Lighthouse by Shantanu Naidu
+## Book Gist: I Came Upon a Lighthouse by Shantanu Naidu
 
 I came upon a Lighthouse by Shantanu Naidu. Is a short memoir of his life with Mr. Ratan N TATA.  
 
@@ -42,5 +42,7 @@ All of this being said. It is not only the blood relationships. Sometimes also t
 As much as I value the parents. I value the mentor. Quite fortunate and grateful to learn. Everything I get to learn. 
 
 If mentorship as a subject interests you. You might also enjoy books **Tuesdays with Morrie** and **The Last Lecture**.
+
+Ps: This might be a slightly biased because I found it the process to be very relatable. To my own journey. How it started, and how it has progressed. 
 
 Happy Reading !!!      
