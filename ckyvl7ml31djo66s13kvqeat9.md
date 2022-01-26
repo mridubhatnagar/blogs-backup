@@ -12,7 +12,7 @@ How did they meet for the first time? How with time friendship, mentorship betwe
 Shantanu Naidu is the founder of Motopaws. A social initiative run for the welfare of street dogs. 
 
 ## What is MotoPaws?
-Shantanu saw that over-speeded vehicles run over ruthlessly when they cannot see dogs at night. Due to this, innocent dogs lose their life. Motopaws puts collars around the dog's necks. Material is such that it radiates from far off. This ensures that drivers are able to see the dogs at night. And, innocent don't get killed. 
+Shantanu saw that over-speeded vehicles run over dogs ruthlessly. When they cannot see dogs at night. Due to this, innocent dogs lose their life. Motopaws puts reflective collars around the dog's necks. Material is such that it radiates from far off. This ensures that drivers are able to see the dogs at night. And, innocent don't get killed. 
 
 ## What bought Shantanu Naidu and Mr. TATA together?
 Shantanu's father suggested him to write a letter to Mr. TATA. Mentioning him about the MotoPaws initiative.  As luck would have had it. The letter got noticed. He was called to meet Mr. TATA. 
