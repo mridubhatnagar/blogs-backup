@@ -37,7 +37,7 @@ Book also has a lot of nice beautiful illustrations. Made by Sanjana Desai. Whic
 There are more details to all of this. Heartwarming anecdotes. His experience and adventures with Shantanu. Also reminded me of his time with Mr. JRD TATA. Whom he fondly called Jeh. He sees Shantanu as a son or his younger brother. While to Shantanu Mr. TATA is his friend, mentor, occasional parent.
 
 ## TAKEAWAY
-All of this being said. It is not always the blood relationships. Sometimes also the people you come across in life who make it beautiful. There is so much you get to learn from them. Mutual love, affection, and shared respect for each other.
+All of this being said. It is not only the blood relationships. Sometimes also the people you come across in life who make it beautiful. There is so much you get to learn from them. Mutual love, affection, and shared respect for each other.
 
 As much as I value the parents. I value the mentor. Quite fortunate and grateful to learn. Everything I get to learn. 
 
