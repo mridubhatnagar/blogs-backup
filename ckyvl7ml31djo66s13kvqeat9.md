@@ -34,7 +34,7 @@ Shantanu used to send letters to Mr. TATA about his life updates, developments i
 ## Is this a good first read?
 Book also has a lot of nice beautiful illustrations. Made by Sanjana Desai. Which keeps the whole book interesting. In case you get bored seeing only text. The book is short around 200 pages or so to be precise. And language is pretty easy. 
 
-There are more details to all of this. Heartwarming anecdotes. His experience and adventures with Shantanu. Also reminded him of his time with Mr. JRD TATA. Whom he fondly called Jeh. He sees Shantanu as a son or his younger brother. While to Shantanu Mr. TATA is his friend, mentor, occasional parent.
+There are more details to all of this. Heartwarming anecdotes. Shantanu's experience and adventures with Mr. TATA. It also reminded Mr. TATA of his time with Mr. JRD TATA. Whom he fondly called Jeh. He sees Shantanu as a son or his younger brother. While to Shantanu Mr. TATA is his friend, mentor, occasional parent.
 
 ## TAKEAWAY
 All of this being said. It is not only the blood relationships. Sometimes also the people you come across in life who make it beautiful. There is so much you get to learn from them. Mutual love, affection, and shared respect for each other.
