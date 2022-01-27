@@ -1,6 +1,6 @@
 ## 7 Lessons I learned about Learning a New Skill from Learning to Swim
 
-For a long time, I had been contemplating learning to swim. Previous attempts at learning the sport were failures. Multiple times had near-drowning experiences which led to crazy fear of water. This time however there was something different. I had made up my mind. I joined swimming in January 2021 and since then there is no looking back.
+For a long time, I had been contemplating learning to swim. Previous attempts at learning the sport were failures. Many times had near-drowning experiences which led to crazy fear of water. This time there was something different. I had made up my mind. I joined swimming in January 2021 and since then there is no looking back.
 
 In the process of learning the beautiful sport. Here are lessons I learned about learning a new skill.
 
