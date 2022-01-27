@@ -30,7 +30,7 @@ There is no answer to how much time it would take to learn a certain skill. Peop
 Powerful, isn't it?
 
 ## Have a Coach
-Coaches help in course correction. I did learn basic swimming in a month or two. Swimming is a fairly technical sport. All body parts are involved. There are very small things that need to be done correctly. Only someone experienced can course correct you. Improving technique is important.  The coach sees you, they help you improve.
+Coaches help in course correction. I did learn basic swimming in a month or two. Swimming is a fairly technical sport. It involves all body parts. There are very small things that need to be done correctly. And, those might go unnoticed. Only someone experienced can course correct you. Improving technique is important.  The coach sees you, they help you improve.
 
 - "Your legs are sinking, make sure they don't sink."
 - "Try to do bi-lateral breathing?"
