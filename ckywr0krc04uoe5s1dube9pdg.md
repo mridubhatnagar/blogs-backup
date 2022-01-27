@@ -50,4 +50,4 @@ After every couple of days, he ensured that I do a little bit more than what I w
 While aiming for perfection is nice. It doesn't happen overnight. There is always room for improvement. Keep observing between yesterday and today what did you improve? What is a new thing you were unable to do before but are able to do it now?
 
 ## Hold yourself Accountable
-Having a friend to go with is nice. Every time there won't be friends to go along with. There is also a possibility that friends decide to quit in mid. There has to be something more powerful that keeps you going. Go and meet people has been a longtime personal mantra. You'll find people who share a common interest.   
+Having a friend to go with is nice. Every time there won't be friends to go along with. There is also a possibility that friends decide to quit in mid. There has to be something more powerful that keeps you going. Go and meet people has been a longtime personal mantra. You'll find people who share a common interest. Show up.  
