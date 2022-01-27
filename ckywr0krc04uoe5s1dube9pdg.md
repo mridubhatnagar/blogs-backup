@@ -1,4 +1,4 @@
-## 7 Lessons I learned about Learning a New Skill from Learning to Swim
+## 8 Lessons I learned about Learning a New Skill from Learning to Swim
 
 For a long time, I had been contemplating learning to swim. Previous attempts at learning the sport were failures. Many times had near-drowning experiences which led to crazy fear of water. This time there was something different. I had made up my mind. I decided to give it a shot once again. I joined swimming in January 2021 and since then there is no looking back.
 
@@ -54,5 +54,8 @@ Having a friend to go with is nice. Every time there won't be friends to go alon
 
 ## Document the Journey
 When chips are down it is easy to forget the wins and give up. Keeping a log of your journey helps you to see days when you made progress.
+
+## Consistency
+Maintaining some level of consistency helps. Even some days of gap resulted in a decrease in stamina. It takes time to again build up stamina. To see progress there is a need to put in consistent effort.
 
 What I feared most. Has now become an integral part of my lifestyle. I love swimming. When swimming I am mentally at peace. In a very focused state. 
