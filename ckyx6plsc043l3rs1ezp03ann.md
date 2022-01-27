@@ -30,7 +30,6 @@ There are people outside this who need your time and presence.<br />
 
 It also teaches you to continue doing things that make you happy. 
 
-Looking back it feels there are fewer pictures we clicked together.
-Possibly due to my own camera shyness. 
+Looking back it feels there are fewer pictures we clicked together. Possibly due to my own camera shyness. 
 
 
