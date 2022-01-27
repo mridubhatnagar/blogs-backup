@@ -51,3 +51,6 @@ While aiming for perfection is nice. It doesn't happen overnight. There is alway
 
 ## Hold yourself Accountable
 Having a friend to go with is nice. Every time there won't be friends to go along with. There is also a possibility that friends decide to quit in mid. There has to be something more powerful that keeps you going. 
+
+## Document the Journey
+When chips are down it is easy to forget the wins and give up. Keeping a log of your journey helps you to see days when you made progress.
