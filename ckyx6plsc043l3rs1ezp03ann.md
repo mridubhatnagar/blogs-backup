@@ -8,7 +8,7 @@ Loss reminds you that life is short ❤️<br />
 It also reminds you that discussing personal life is absolutely fine. <br />
 As long as it is making you feel better.<br />
 
-24*7 it doesn't necessarily need to be about startup, productivity <br />  
+24*7 it doesn't necessarily need to be about startup, productivity. <br />  
 Neither talks have to be about Twitter, Career, Hustle, etc.<br />
 It's okay to be vulnerable. It is okay to have support systems.<br />
 
