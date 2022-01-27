@@ -37,7 +37,7 @@ Coaches help in course correction. I did learn basic swimming in a month or two.
 - "Don't keep your fingers open, keep the close"
 - "Don't drop your elbow"
 
-Coaches can offer you the needed encouragement too. All progress in swimming is hands down because of 2 of them. While one helped in building the initial confidence and making the basics correct. Another one took it on him to help me improve the technique. 
+Coaches can offer you the needed encouragement too. All progress in swimming is hands down because of 2 coaches. While one helped in building the initial confidence and making the basics correct. Another one took it on him to help me improve the technique. 
 
 I'm truly blessed in life. To have found the best teachers, mentors, coaches in life almost always at the right time. With swimming after various failed attempts with other swimming coaches. This time finally, it clicked. Yay.  
 
