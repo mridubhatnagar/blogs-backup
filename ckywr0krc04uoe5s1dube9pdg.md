@@ -54,3 +54,5 @@ Having a friend to go with is nice. Every time there won't be friends to go alon
 
 ## Document the Journey
 When chips are down it is easy to forget the wins and give up. Keeping a log of your journey helps you to see days when you made progress.
+
+What I feared most. Has now become an integral part of my lifestyle. I love swimming. When swimming I am mentally at peace. In a very focused state. 
