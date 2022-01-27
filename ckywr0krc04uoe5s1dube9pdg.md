@@ -21,7 +21,7 @@ Learn one thing at a time. Break it down into very small pieces. I joined swimmi
 Keep practicing. Once, you fall in love with the process. Everyday grinding is a humbling experience. There would be good days, there would bad days. By the end of it. It is quite certain that you'll learn. 
 
 ## Give it time
-There is no answer to how much time it would take to learn a certain skill. People like certainty, that is why people around are selling certainty. There is a swimming channel on YouTube run by swimming coach Michael Nitro. He ends each of his videos by saying:
+There is no answer to how much time it would take to learn a certain skill. People like certainty, that is why people around sell certainty. There is a swimming channel on YouTube run by swimming coach Michael Nitro. He ends each of his videos by saying:
 
 - Don't get frustrated
 - Have Patience
