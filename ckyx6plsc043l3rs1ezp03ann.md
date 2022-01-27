@@ -27,7 +27,9 @@ It teaches you there is also more to life than only work.<br />
 It teaches you there is also more to life than only pursuing your own interests.<br />
 There are people outside this who need your time and presence.<br />
 
-It also teaches you to continue doing things that make you happy. 
+It also teaches you to continue doing things that make you happy. <br />
+
+It also reminds you that personal goals are alright. My friend, remember to lift your head up and look around.
 
 Looking back it feels there are fewer pictures we clicked together. Possibly due to my own camera shyness. And, thinking that there is still time.
 
