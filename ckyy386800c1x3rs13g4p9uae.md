@@ -13,11 +13,7 @@ A good school, good college, a good network, personal coaches/mentors to look up
 
 Some ideas he shares in the book and I think are worth giving a thought are:
 
-1. Time spent at work is not equal to your experience. In interviews, it is a common practice to tell years of experience. While evaluating individual growth a good question to ask ourselves is:
-
-
-- What are the skills I worked on all these years?
-- What is the work that I did to improve the skills?
+1. Time spent at work is not equal to your experience. In interviews, it is a common practice to tell years of experience. While evaluating individual growth a good question to ask ourselves is What are the skills I worked on all these years? What is the work that I did to improve the skills?
 
 2. Optimize for teams that have good bosses, good managers. At least in the early career years for an individual. A lot of their success also depends on the managers. 
 Sailing in the same boat I get it that from outside it is difficult to gauge the managers unless you have some connection from before. Some level of research I think can help. Largely I feel, this also is luck-based.
