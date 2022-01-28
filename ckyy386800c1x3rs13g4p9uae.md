@@ -20,7 +20,7 @@ Sailing in the same boat I get it that from outside it is difficult to gauge the
 
 3. Good mentors accelerate your career growth. Especially, mentors with whom you are not competing in any way.  Mentors who are equally invested in your individual growth, your needs. Along with mutual respect and value addition. There might be something you can help them in, there are definitely things in which you can get help.
  
-4. Work-Life balance is often thought of as finding some sought of balance between work and life. A new perspective I found in the book is what is the impact of life on your work? For having a good work-life. It is necessary to have and take care of a life that does not involve work. 
+4. Work-Life balance is often thought of as finding some sought of balance between work and life. A new perspective I found in the book is, what is the impact of life on your work? For having a good work-life. It is necessary to have and take care of a life that does not involve work. 
 
 5. I read somewhere "What gets measured, gets improved". Mouli shares a good framework for learning and improvement. TMRR stands for Target, Measure, Review, Reflect.
 
