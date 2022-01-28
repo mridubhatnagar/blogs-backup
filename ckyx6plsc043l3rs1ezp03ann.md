@@ -30,7 +30,8 @@ There are people outside this who need your time and presence.<br />
 It also gives you an opportunity to stand strong and tall.<br />
 It also teaches you to continue doing things that make you happy. <br />
 
-It also reminds you that personal goals are alright. My friend, remember to lift your head up and look around.
+It also reminds you that personal goals are alright. <br />
+My friend, remember to lift your head up and look around.
 
 Looking back it feels there are fewer pictures we clicked together. Possibly due to my own camera shyness. And, thinking that there is still time.
 
