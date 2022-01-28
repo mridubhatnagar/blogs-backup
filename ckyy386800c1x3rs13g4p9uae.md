@@ -1,6 +1,6 @@
 ## January Read: Catalyst by Chandramouli Venkatesan (Book Gist)
 
-Catalyst is by an industry veteran Chandramouli Venkatesan. Mouli is known in the industry for conducting training. Doing sessions titled "Tee with Mouli".  This book is a compilation of what he has been delivering in his corporate trainings. And, has enhanced his work and insights. Based on the feedback he received from his training participants. 
+Catalyst is by an industry veteran Chandramouli Venkatesan. Mouli is known in the industry for conducting training. Doing sessions titled "Tee with Mouli".  This book is a compilation of what he has been delivering in his corporate training. And, has enhanced his work and insights. Based on the feedback he received from his training participants. 
 
 While everyone keeps talking about career. I personally feel there are a lot of unknowns, abstract and ambiguous things in the journey.
 
