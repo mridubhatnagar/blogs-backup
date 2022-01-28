@@ -38,5 +38,9 @@ Sailing in the same boat I get it that from the outside it is difficult to gauge
 
 In career in life in general there are many things that are not within our control. From the handful of things that are to some extent in our control one is individual growth. I believe there is nothing better than proof of work to show your competence. 
 
+If you are interested in having a copy of book for yourself or might want to gift someone. Here is a link:
+
+%[https://www.amazon.in/Catalyst-Chandramouli-Venkatesan/dp/0143442473]
+
 
  
