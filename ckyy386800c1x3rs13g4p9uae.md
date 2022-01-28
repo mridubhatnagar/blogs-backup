@@ -34,7 +34,7 @@ Sailing in the same boat I get it that from the outside it is difficult to gauge
 
 10. Create your values, live by your values. 
 
-11. Having a "Passionately Striving" Hobby is a career catalyst. Playing individual sports can have a high positive impact on individual growth. They keep you grounded, they teach you to continuously keep putting efforts to improve. They give you a sense of achievement. You are not competing against anyone. They help you in keeping a check on your own progress. 
+11. Having a "Passionately Striving" Hobby is a career catalyst. Playing individual sports can have a high positive impact on individual growth. They keep you grounded. They teach you to continuously keep putting efforts to improve. They give you a sense of achievement. You are not competing against anyone. They help you in keeping a check on your own progress. 
 
 In career in life in general there are many things that are not within our control. From the handful of things that are to some extent in our control one is individual growth. I believe there is nothing better than proof of work to show your competence. 
 
