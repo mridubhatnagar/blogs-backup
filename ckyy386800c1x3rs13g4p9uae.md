@@ -6,12 +6,12 @@ While everyone keeps talking about career. I personally feel there are a lot of 
 
 Your job is not your career. Careers are long and need to be carefully thought off and designed. There is no framework to it. Career success is also uneven. Not everyone finds it. Luck has its own roles to play, being at the right place at right time has its own value. But, again those things are not within our control.  
 
-A good school, good college, a good network, personal coaches/mentors to look up to, books all are catalysts for career success.
+A good school, good college, a good network, personal coaches/mentors to look up to, books. All are catalysts for career success.
 
 
 ![WhatsApp Image 2022-01-28 at 12.02.47 PM.jpeg](https://cdn.hashnode.com/res/hashnode/image/upload/v1643352022955/KdzmHWPh9.jpeg)
 
-Some ideas he shares in the book and I think are worth giving a thought are:
+Some ideas he shares in the book that are worth pondering on are:
 
 1. Time spent at work is not equal to your experience. In interviews, it is a common practice to tell years of experience. While evaluating individual growth a good question to ask ourselves is What are the skills I worked on all these years? What is the work that I did to improve the skills?
 
