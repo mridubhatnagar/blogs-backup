@@ -53,6 +53,8 @@ With this book, Monika Halan explains personal finance from an absolute beginner
 
 I was interested in DIY personal finance. This is by far the best recommendation I ever received on personal finance. Also, a heartfelt thanks to Monika Halan for writing the book in a manner that anyone can understand. Whatever, I have picked up in personal finance. It is because of her book. 
 
+What have your go-to resources been for learning personal finance?
+
 **References:**
 
 - If you are interested in learning about personal finance. Below mentioned are some more books on similar lines. These introduce you to finance. But, lacks Indian context. 
