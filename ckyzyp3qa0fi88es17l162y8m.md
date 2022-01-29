@@ -10,7 +10,7 @@ With this book, Monika Halan explains personal finance from an absolute beginner
 ![WhatsApp Image 2022-01-28 at 5.55.23 PM.jpeg](https://cdn.hashnode.com/res/hashnode/image/upload/v1643372795923/Bhz93ghLd.jpeg)
 
 
-1. Have 3 accounts. Income account, spend-it account, and Invest-it account. As soon as the income comes. Some percentage of income should be transferred to the spend-it and invest-it accounts. Never transfer money from your invest-it account to your spend-it account.
+1. Have 3 accounts. Income account, spend-it account, and Invest-it account. As soon as the income comes. Do budgeting. Some percentage of income should be transferred to the spend-it and invest-it accounts. Never transfer money from your invest-it account to your spend-it account.
 
 2. Before you start investing. Start building an emergency fund. An emergency fund should be 6-12 months of your expenses. It also answers where to keep your emergency fund?
 
