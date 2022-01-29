@@ -48,7 +48,7 @@ I was interested in learning and DIY personal finance. This was the best recomme
 
 **References:**
 
-- If you are interested in learning about personal finance. Other books on similar lines include:
+- If you are interested in learning about personal finance. Below mentioned are some more books on similar lines. These introduce you to finance. But, lack Indian context. 
 
    - I'll teach you how to be rich by Ramit Sethi 
     %[https://www.amazon.in/Will-Teach-You-Be-Rich/dp/0761147489]
