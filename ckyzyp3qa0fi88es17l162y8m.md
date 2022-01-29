@@ -4,7 +4,7 @@ The school does not introduce you to money. Adding to that if you chose to do en
 
 And, just like that, you make it to your first job. Earn the first paycheck and the money journey starts. When the in-hand salary comes less than CTC. You too must have felt. But.. no one told me that so many deductions are bound to happen?
 
-With this book, Monika Halan explains personal finance from an absolute beginner level. No jargons. Throughout the book, she shares actionable insights from the Indian context on How you can make money work for you?
+With this book, Monika Halan explains personal finance from an absolute beginner level. No jargons. Throughout the book, she shares actionable insights from the Indian context. How you can make money work for you?
 
 
 ![WhatsApp Image 2022-01-28 at 5.55.23 PM.jpeg](https://cdn.hashnode.com/res/hashnode/image/upload/v1643372795923/Bhz93ghLd.jpeg)
