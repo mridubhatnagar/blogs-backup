@@ -14,7 +14,7 @@ With this book, Monika Halan explains personal finance from an absolute beginner
 
 2. Before you start investing. Start building an emergency fund. An emergency fund should be 6-12 months of your expenses. It also answers where to keep your emergency fund?
 
-3. Life is uncertain. Buy insurance. Insurance products are not investment products. Don't consider insurance as an expense. It is for your protection. While a lot of mis-selling happens in the insurance market. It can be overwhelming to navigate alone and select the right product. A lot of mis-selling also exists because commission and incentives are given on every sale. What they are recommending to you might not be what you need. Health Insurance and simple plain term insurance covers are must-haves without any fail.
+3. Life is uncertain. Buy insurance. Insurance products are not investment products. Don't consider insurance as an expense. It is for your protection. While a lot of mis-selling happens in the insurance market. It can be overwhelming to navigate alone and select the right product. On every sale insurance agent earn incentives and commission. This is one of the reasons for mis-selling of insurance products. What they are recommending to you might not be what you need. Health Insurance and simple plain term insurance covers are must-haves without any fail.
 
 4.  When buying term insurance. Check if the policy is not any money back, endowment, or ULIP policies. All these have higher premiums. Buy simple term insurance. The book also answers regarding, how to figure out how much cover you would need for your family? What is the claim settlement ratio of the insurance provider?
 
