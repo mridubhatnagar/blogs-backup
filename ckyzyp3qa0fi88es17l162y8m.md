@@ -51,7 +51,7 @@ With this book, Monika Halan explains personal finance from an absolute beginner
 
 15. Retirement.  
 
-I was interested in DIY personal finance. This was the best recommendation on personal finance I received from Twitter. Also, a heartfelt thanks to Monika Halan for writing the book in a manner that anyone can understand. Whatever, I have picked up in personal finance. It is because of her book. 
+I was interested in DIY personal finance. This is by far the best recommendation I ever received on personal finance. Also, a heartfelt thanks to Monika Halan for writing the book in a manner that anyone can understand. Whatever, I have picked up in personal finance. It is because of her book. 
 
 **References:**
 
