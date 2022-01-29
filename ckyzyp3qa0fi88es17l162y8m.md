@@ -22,7 +22,16 @@ With this book, Monika Halan explains personal finance from an absolute beginner
 
 6. Book then explains how to calculate your net taxable income? What are the available deductions? Which instruments can you invest in for tax-saving purposes?
 
-7. Standard deduction of 50,000 is available. PF deduction, PPF investment, VPF, ELSS, 5-year tax saving FD, Term insurance premium payment. All these come under section 80C. You can claim Rs 1.5 lac deduction under section 80C.
+7. Standard deduction of 50,000 is available. Following instruments come under 80C:
+
+    - PF deduction
+    - PPF investment
+    - VPF
+    - ELSS
+    - 5-year tax saving FD
+    - Term insurance premium 
+
+All these come under section 80C. You can claim Rs 1.5 lac deduction under section 80C.
 
 8. The health insurance premium paid. Regular health checkup expenses upto Rs 5000 can be claimed under section 80D. Section 80D is further divided into different brackets based on age. Under this, you can claim for your spouse, children, and parents. The maximum deduction limit is decided based on your age and your parent's age.  
 
