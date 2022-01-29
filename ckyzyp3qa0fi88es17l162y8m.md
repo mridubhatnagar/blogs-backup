@@ -33,9 +33,9 @@ With this book, Monika Halan explains personal finance from an absolute beginner
 
 8. The health insurance premium paid. Regular health checkup expenses upto Rs 5000 can be claimed under section 80D. Section 80D is further divided into different brackets based on age. Under this, you can claim for your spouse, children, and parents. The maximum deduction limit is decided based on your age and your parent's age.  
 
-- If individual and parents both are below 60 years. The total deduction that can be claimed under section 80D is Rs 50,000. 
-- If individual and family below 60 years and parents are above 60 years. The total deduction that can be claimed under section 80D is Rs 75,000.
-- If individual and family and parents all are above 60 years of age. The total deduction that can be claimed under section 80D is Rs 1,00,000.
+  - If individual and parents both are below 60 years. The total deduction that can be claimed under section 80D is Rs 50,000. 
+  - If individual and family below 60 years and parents are above 60 years. The total deduction that can be claimed under section 80D is Rs 75,000.
+  - If individual and family and parents all are above 60 years of age. The total deduction that can be claimed under section 80D is Rs 1,00,000.
 
 9. If you are not claiming HRA deduction. You can claim house rent deduction under section 80GG.
 
