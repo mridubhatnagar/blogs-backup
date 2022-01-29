@@ -10,7 +10,7 @@ With this book, Monika Halan explains personal finance from an absolute beginner
 ![WhatsApp Image 2022-01-28 at 5.55.23 PM.jpeg](https://cdn.hashnode.com/res/hashnode/image/upload/v1643372795923/Bhz93ghLd.jpeg)
 
 
-1. Have 3 accounts. Income account, spend-it account, and Invest-it account. As soon as the income comes. Some percentage of income should be transferred to the spend-it and invest-it accounts. Make it a self-imposed constraint to not take out or transfer any amount from the invest-it account to your expense account. 
+1. Have 3 accounts. Income account, spend-it account, and Invest-it account. As soon as the income comes. Some percentage of income should be transferred to the spend-it and invest-it accounts. Never transfer money from your invest-it account to your spend-it account.
 
 2. Before you start investing. Start building an emergency fund. An emergency fund should be 6-12 months of your expenses. It also answers where to keep your emergency fund?
 
@@ -48,13 +48,17 @@ I was interested in learning and DIY personal finance. This was the best recomme
 
 **References:**
 
-- If you are interested in learning about personal finance. Below mentioned are some more books on similar lines. These introduce you to finance. But, lack Indian context. 
+- If you are interested in learning about personal finance. Below mentioned are some more books on similar lines. These introduce you to finance. But, lacks Indian context. 
 
    - I'll teach you how to be rich by Ramit Sethi 
     %[https://www.amazon.in/Will-Teach-You-Be-Rich/dp/0761147489]
 
    - Rich dad, poor dad by Robert T Kiyosaki 
    %[https://www.amazon.in/Rich-Dad-Poor-Middle-Updates/dp/1612680194/ref=asc_df_1612680194/?tag=googleshopdes-21&linkCode=df0&hvadid=397008395029&hvpos=&hvnetw=g&hvrand=15363217147264703475&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=1007796&hvtargid=pla-301634461823&psc=1&ext_vrnc=hi]
+
+   - The Psychology of Money by Morgan Housel
+
+       %[https://www.amazon.in/Psychology-Money-Morgan-Housel/dp/9390166268] 
 
 - If you are interested in buying Monika Halan's Book. Bonus - This book has a new and updated edition based on covid-19. Here you go.
 
