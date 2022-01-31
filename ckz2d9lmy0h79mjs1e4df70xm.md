@@ -1,6 +1,6 @@
 ## Year 2019 Good Read: Brave Not Perfect by Reshma Saujani (Book Gist)
 
-It was early during the early months of 2019. I lived in Gurgaon. On a weekend I decided to head out to Select City Walk, South Delhi. I was all by myself strolling, and exploring what was there in the mall. Exploring because it was my first visit to the hyped place.
+It was during the early months of 2019. I lived in Gurgaon. On a weekend I decided to head out to Select City Walk, South Delhi. I was all by myself strolling, and exploring what was there in the mall. Exploring because it was my first visit to the hyped place.
 
 Nothing interested me inside. However, when I came out. I came across an old famous Bahrisons Bookstore, Saket. The joy of going to the bookstore. Picking the book. Flipping the pages is incomparable to purchasing a book online. It never gets old. For me, the bookstore is also the place where I have had interesting conversations with strangers. 
 
