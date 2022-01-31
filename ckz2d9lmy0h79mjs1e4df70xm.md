@@ -4,7 +4,7 @@ It was during the early months of 2019. I lived in Gurgaon. On a weekend I decid
 
 Nothing interested me inside. However, when I came out. I came across an old famous Bahrisons Bookstore, Saket. The joy of going to the bookstore. Picking the book. Flipping the pages is incomparable to purchasing a book online. It never gets old. For me, the bookstore is also the place where I have had interesting conversations with strangers. 
 
-While I read the preface and book cover of many books. Yours truly purchased two books Sapiens (Special collector's edition) and Brave Not Perfect by Reshma Saujani.
+While I read the preface and book cover of many books. Yours truly purchased two books Sapiens (Special collector's edition) and Brave, Not Perfect by Reshma Saujani.
 
 
 
