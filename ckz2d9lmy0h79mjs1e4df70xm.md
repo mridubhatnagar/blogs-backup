@@ -37,6 +37,6 @@ Brave, Not Perfect.
 
 If you are interested in getting a copy of the book. Here you go:
 
-**Brave, Not Perfect**
+**Be Brave, Not Perfect**
 
 %[https://www.amazon.in/Brave-Not-Perfect-Fear-Bolder/dp/1524762334]
