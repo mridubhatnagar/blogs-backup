@@ -27,4 +27,4 @@ Book shares examples regarding what can you do so that you learn to practice bra
 While it might seem to you that we are in the 21st Century and what is written might not be true. To find an answer observe how many women are there in your team?
 how many women do you find in the boardroom meetings? How many women are part of the engineering teams? How many women founders exist? How many women are in leadership roles? How many women had to leave their jobs during the pandemic?
 
-A long time back I remember reading a newspaper headline. The number of women getting school and college education has increased than before in India. But, the number of women present in the workforce has still not improved. 
+A long time back I remember reading a newspaper headline "The number of women getting school and college education has increased than before in India. But, the number of women present in the workforce has still not improved." 
