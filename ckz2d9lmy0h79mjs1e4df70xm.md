@@ -22,6 +22,8 @@ In a patriarchal society like ours. The careers and interests of women are not p
 
 Book shares examples regarding what can you do so that you learn to practice bravery and not chase perfection. Like other skills, bravery is a skill that can be learned. 
 
+## Food for thought?
+
 While it might seem to you that we are in the 21st Century and what is written might not be true. To find an answer observe how many women are there in your team?
 how many women do you find in the board-meeting rooms? How many women are part of the engineering teams? How many women founders exist? How many women are in leadership roles? How many women had to leave their jobs during the pandemic?
 
