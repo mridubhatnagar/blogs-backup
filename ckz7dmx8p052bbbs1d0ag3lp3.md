@@ -1,4 +1,4 @@
-## Year 2019 Good Read: Eat That Frog by Brian Tracy (Book Gist)
+## Year 2019, Good Read: Eat That Frog by Brian Tracy (Book Gist)
 
 Productivity is one of those topics that is important. And, you are left on your own to figure out. Realization dawns upon you when you aren't able to find your way out of procrastination. 
 
