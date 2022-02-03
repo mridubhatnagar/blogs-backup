@@ -61,14 +61,7 @@ For the ones who are looking to figure out their working style. And, looking for
           
 
 
-        
-            
-
-
-
-
-
-
+    
       
      
 
