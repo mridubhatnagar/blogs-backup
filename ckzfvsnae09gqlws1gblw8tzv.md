@@ -32,6 +32,6 @@ Seth Godin through his short book titled The Dip. Addresses what is less talked 
 
 At places, the book might seem to be repetitive. I like it the way it is. Repetition helps in making the advice stick. The perspective might not fit in every other scenario. As it is challenging to predict the future prospects of something. Wherever it fits it'll save time with the decision-making. 
 
-And, will make you re-think to am I ready to survive the dip or to willing to quit before the start?
+And, will make you re-think am ready to survive the dip or willing to quit before the start?
 
 
