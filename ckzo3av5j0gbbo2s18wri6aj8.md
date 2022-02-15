@@ -2,10 +2,6 @@
 
 Once every year the city I reside in hosts a Marathon. This year, the marathon was virtual. However, they had also made some arrangements for conducting it on the ground. Spread across 7 days anyone could complete their run anywhere. Upload the screenshot of distance traveled and time taken on the website.
 
-I knew I wanted to experience it. At the venue, not at the location of my convenience. But, wasn't sure if 5K was my cup of it? And, second I wasn't someone who was training particularly for the Marathon. Racing thoughts? How much preparation is required beforehand? Will I be able to make it? 
-
-Random thoughts based on assuming what a marathon is like. Would have resulted in making me quit before the start. I thought a better approach is to reach out to folks who have done it before. And, see what level of preparation is required. I reached out to one of my school friends to learn from her experience. Next, I reached out to my teammate who runs regularly, participates in marathons. My takeaway from our conversation was "Listen to your body." She emphasized, make sure to "Listen to your body."
-
 Without any further delay. 7 days before I made up my mind. This had to be done. This year itself. Registered for the event. On Sunday 13th February reached the starting point Nehru Stadium. Along with a school friend. The route from there was to reach Daly College and return to the starting point.
 
 On the way, there were beautiful trees, gardens on both sides of the road. Residency garden, Traffic Park, Radio Colony, Daly College, Agriculture Research Institute, Daly College Business School, the mighty shining sun, and Farmlands.
