@@ -8,7 +8,7 @@ Random thoughts based on assuming what a marathon is like. Would have resulted i
 
 Without any further delay. 7 days before I made up my mind. This had to be done. This year itself. Registered for the event. On Sunday 13th February reached the starting point Nehru Stadium. Along with a school friend. The route from there was to reach Daly College and return to the starting point.
 
-On the way, there were beautiful trees, gardens on both sides of the road. Residency garden, Traffic Park, Radio Colony, Daly College, Agriculture research institute, Daly College Business School, the mighty shining sun, and Farmlands.
+On the way, there were beautiful trees, gardens on both sides of the road. Residency garden, Traffic Park, Radio Colony, Daly College, Agriculture Research Institute, Daly College Business School, the mighty shining sun, and Farmlands.
 
 
 ![WhatsApp Image 2022-02-15 at 1.18.18 PM.jpeg](https://cdn.hashnode.com/res/hashnode/image/upload/v1644925230641/5SheXf92m.jpeg)
