@@ -20,7 +20,7 @@ One of the roads had no vehicle traffic. We could see Peahens, 5-7 dogs. The mor
 
 ![WhatsApp Image 2022-02-15 at 1.17.59 PM.jpeg](https://cdn.hashnode.com/res/hashnode/image/upload/v1644925606330/jZlcgKWB4.jpeg)
     
-All throughout we had some nostalgic conversation about the school athletic meet. 100 meter, 200 meters, relay races. From then to now how a lot of things changed. What was even funnier was that we were the ones who ran and at times won too?? 
+All throughout we had some nostalgic conversations. School athletic meet. 100 meter, 200 meters, relay races. From then to now how a lot of things changed. What was even funnier was that we were the ones who ran and at times won too?? 
 
 ![WhatsApp Image 2022-02-15 at 1.17.33 PM.jpeg](https://cdn.hashnode.com/res/hashnode/image/upload/v1644925616077/gr50OqNZJ.jpeg)
 
