@@ -1,6 +1,6 @@
 ## February Experience: First 5K Marathon
 
-Once every year the city I reside in hosts a Marathon. This year, the marathon was virtual. However, they had also made some arrangements for conducting it on the ground. Spread across 7 days anyone could complete their run and upload the screenshot of distance traveled and time taken on the website.
+Once every year the city I reside in hosts a Marathon. This year, the marathon was virtual. However, they had also made some arrangements for conducting it on the ground. Spread across 7 days anyone could complete their run. Upload the screenshot of distance traveled and time taken on the website.
 
 I knew I wanted to experience it. At the venue, not at the location of my convenience. But, wasn't sure if 5K was my cup of it? And, second I wasn't someone who was training particularly for the Marathon. Racing thoughts? How much preparation is required beforehand? Will I be able to make it? 
 
