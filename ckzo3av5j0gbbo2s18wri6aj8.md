@@ -15,7 +15,7 @@ On the way, there were beautiful trees, gardens on both sides of the road. Resid
   
 Marathon wasn't like a typical overcrowded marathon. Everyone was on their own. It was nice to see seasoned runners crossing you. One of them appeared to be talking out loud to himself. Powerful self-talk so that he finishes the run. 
 
-One of the roads had no vehicle traffic. We could see Peahens, 5-7 dogs. The morning of 13th February while on the marathon also began with a strange encounter with dogs. Haha.
+One of the roads had no vehicle traffic. We could see Peahens, 5-7 dogs. The morning of 13th February while on the marathon also began with a strange encounter with dogs. Haha, survived and alive.
 
 
 ![WhatsApp Image 2022-02-15 at 1.17.59 PM.jpeg](https://cdn.hashnode.com/res/hashnode/image/upload/v1644925606330/jZlcgKWB4.jpeg)
