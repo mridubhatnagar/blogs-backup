@@ -49,3 +49,5 @@ Linchpin by Seth Godin offers insights on a forgotten topic. The book is not a s
 20. Don't let your circumstances or habits rule your choices today. Become a master of yourself and use your willpower to choose.
 
 The above mentioned are some of the key excerpts from the book. There is lot more to the book. One of those books that I'll most likely re-pick time and again to seek answers. 
+
+The system trains us to fit in. We have a choice and it is in our control to stand out. 😀
