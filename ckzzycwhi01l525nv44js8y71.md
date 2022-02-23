@@ -13,7 +13,7 @@ No, second passes by when I don't think about my father in the back of my mind. 
  
  During summers his way of waking us up was to close the room fan. Assuming we on 
  our own would wake up due to sweating. 9:00 AM in the morning used to feel 11:00 AM 
- to him. And, we used to often hear half the day has already passed and you haven't got up yet. This time, I too tried waking you up. I couldn't wake you up. The clock was striking at the same time. Your tricks didn't work on you. I remember asking you Where have you gone? We were yet to go places together. I was too late to question.
+ to him. And, we used to often hear half the day has already passed and you haven't got up yet. This time, I too tried waking you up. I couldn't wake you up. The time in the clock was the exact same. Your tricks didn't work on you. I remember asking you Where have you gone? We were yet to go places together. I was too late to question.
 
 Winters for him used to be about waking 4-5 times in the night. To check and ensure that we are inside our blankets. And, not feeling cold.
 
