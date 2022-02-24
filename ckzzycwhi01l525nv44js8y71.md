@@ -28,6 +28,10 @@ very end. Kept smiling always no matter what.
 
 I used to ask him Is there a day when you don't feel like going to work? He had no answer.
 
+I was going through his things. Found my brother's passport size photograph in his wallet. Caught hold of his work diary. Surprisingly found my photograph there. We never knew about it. He never told us. He loved, he cared. This was his way. 
+
+Is there petrol in your vehicle? Do you have helmet? I know you are dependent on UPI and you can pay for yourself. But, keep cash. You don't understand emergencies. That app might stop working. 
+
 I have questions to ask you, things to discuss with you. Many life-changing decisions to make. Where are you?
 
 Over all these years I could never muster the courage to say it to you. I could never express it either. But, the truth is "I miss you", "I love you". Life taught me the hardest way what it feels like to miss someone. 
