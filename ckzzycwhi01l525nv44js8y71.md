@@ -11,9 +11,7 @@ No, second passes by when I don't think about my father in the back of my mind. 
  I used to reply "All days are alike. Why do you ask the same question?"
  After all these years I have an answer. Life is happening. No two days are alike. The difference is, the question itself has got scraped. No one asks "How was your day?", "How were things at work?"
  
- During summers his way of waking us up was to close the room fan. Assuming we on 
- our own would wake up due to sweating. 9:00 AM in the morning used to feel 11:00 AM 
- to him. And, we used to often hear half the day has already passed and you haven't got up yet. This time, I too tried waking you up. I couldn't wake you up. The time in the clock was the exact same. Your tricks didn't work on you. I remember asking you Where have you gone? We were yet to go places together. I was too late to question.
+ During summers his way of waking us up was to switch off the room fan. Assuming we on our own would wake up due to sweating. 9:00 AM in the morning used to feel 11:00 AM to him. And, we used to often hear half the day has already passed and you haven't got up yet. This time, I too tried waking you up. I couldn't wake you up. The time in the clock was the exact same. Your tricks didn't work on you. I remember asking you Where have you gone? We were yet to go places together. I was too late to question.
 
 Winters for him used to be about waking 4-5 times in the night. To check and ensure that we are inside our blankets. And, not feeling cold.
 
@@ -40,7 +38,7 @@ Void in life shall always remain.
 
 I also realize that I didn't reciprocate the care I was given. 
 
-Anyhow, this was penned down because memory starts to fade away as you grow older.   Also, every person I feel has some threshold level of listening.
+Anyhow, this was penned down because memory starts to fade away as you grow older. It is not the time that is healing. Maybe we forget? Also, every person I feel has some threshold level of listening.
 
 Apart from everything that I picked up from you. Here are more, keep checking in on 
 your loved ones, keep smiling no matter how tough life gets, relentlessly keep trying.
