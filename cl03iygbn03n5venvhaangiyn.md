@@ -49,4 +49,4 @@ The Psychology of Money by Morgan Housel showcases how our financial decisions a
 
 ## My opinion on the book?
 
-In the time and age of information abundance, and social media. What is written and the way it is explained is gold. It will also make you re-think where your life is going. What you are after?
+In the time and age of information abundance, and social media. When there is no lack of context less advice. What is written and the way it is explained is gold. It will also make you re-think where your life is going. What you are after?
