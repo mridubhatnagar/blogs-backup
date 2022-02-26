@@ -47,6 +47,8 @@ The Psychology of Money by Morgan Housel showcases how our financial decisions a
 
 3. Youtube and social media is not the place to learn anything finance-related. Period. A lot of what is spoken lacks context. A person out there might be teaching you to invest your money in a non-liquid asset before saving for the rainy day.
 
+4. Discuss finance only with the ones you trust. 
+
 ## My opinion on the book?
 
-In the time and age of information abundance, and social media. When there is no lack of context less advice. What is written and the way it is explained is gold. It will also make you re-think where your life is going. What you are after?
+In the time and age of information abundance, social media, and the likes of youtube. When there is no lack of contextless advice. What is written and the way it is explained is gold. It will also make you re-think where your life is going. What you are after?
