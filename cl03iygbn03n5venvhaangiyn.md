@@ -47,6 +47,8 @@ The Psychology of Money by Morgan Housel showcases how our financial decisions a
 
 3. Youtube and social media is not the place to learn anything finance-related. Period. A lot of what is spoken lacks context. A person out there might be teaching you to invest your money in a non-liquid asset before saving for the rainy day.
 
+4. More to think about when you are a citizen of India. You pay the Government of India before you put food on your table. You are not getting any social security in return. There is income tax to pay, there is tons of indirect tax you pay. 
+
 
 ## My opinion on the book?
 
