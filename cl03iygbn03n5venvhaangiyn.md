@@ -1,4 +1,4 @@
-## March, Good Read: The Psychology Of Money by Morgan Housel (Book Gist)
+## February, Good Read: The Psychology Of Money by Morgan Housel (Book Gist)
 
 The Psychology of Money by Morgan Housel showcases how our financial decisions are influenced and taken based on our behavior and emotions. And, have less to do with calculations done on excel spreadsheets.
 
