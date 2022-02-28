@@ -1,8 +1,8 @@
 ## Books and Bookstores
 
-My heart is full. I'm grateful that in a world driven by technology. Good old physical books exist. I can pick the book up, flip the pages, smell the pages. 
+My heart is full. I'm grateful that in a world driven by technology. Good old physical books exist. You can pick the book up, flip the pages, smell the pages. 
 
-Ads don't keep popping up. No, one wants me to click the ad. I have control over what I am reading. Unlike doom scrolling. You don't see others getting jobs. You are not seeing your friends getting married. There are no context-less quotes being written. No travel photographs. No paid walls. It's just you and the book. 
+Ads don't keep popping up. No, one wants me to click the ad. You have control over what you are reading. Unlike doom scrolling. You don't see others getting jobs. You are not seeing your friends getting married. There are no context-less quotes being written. No travel photographs. No paid walls. It's just you and the book. 
 
 Bookstores are as special as the book. Enter the bookstore, glance through each and every bookshelf, every row. Pick the book you are curious to read. If the store is like Bahrisons, Landmark, Crosswords, Blossoms, Bookworm. You can actually sit in the bookstore and read your book. Start discussing good reads and strangers become friends. 
 
