@@ -14,7 +14,7 @@ Books provide an escape from reality. Books help you learn what no one else told
 Read Khalid Hosseini, James Clear, Derek Sivers, Tim Ferris, Richard Bach, Seth Godin, and many others. 
   
 
-Finally, there is a little place for the ever-growing collection. I that hold dear.    
+Finally, there is a little place for the ever-growing collection. I hold dear.    
 
 
 ![WhatsApp Image 2022-02-28 at 10.17.06 PM.jpeg](https://cdn.hashnode.com/res/hashnode/image/upload/v1646067132921/_xW4WDmmL.jpeg)
