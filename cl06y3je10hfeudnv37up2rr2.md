@@ -1,4 +1,4 @@
-## Love for Books and Bookstores
+## Books and Bookstores
 
 My heart is full. I'm grateful that in a world driven by technology. Good old physical books exist. I can pick the book up, flip the pages, smell the pages. 
 
