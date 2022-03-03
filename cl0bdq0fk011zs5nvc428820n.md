@@ -21,6 +21,7 @@ Burning midnight oil might increase the probability of a better future. But, the
 When the consumer doesn't get what they want in the guaranteed time. They go haywire.  Forgetting the fact nothing in this uncertain world comes with a guarantee. 
 
 Do you know the only thing in life that is guaranteed?
+
 Death :)
 
 
