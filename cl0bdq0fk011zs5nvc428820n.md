@@ -18,7 +18,7 @@ Burning midnight oil might increase the probability of a better future. But, the
 
 10-mins or 30-mins delivery service is an uncertain bet. There are lot many variables involved. Neither the company nor the delivery agent knows if they'll be right there at your doorstep at the mentioned time. 
 
-When the consumer doesn't get what they want in the guaranteed time. They go haywire.  Forgetting the fact nothing in this uncertain world comes with a guarantee. 
+When the consumer doesn't get what they want in the guaranteed time. They go haywire.  Habitual of living a life with convenience. Forgetting the fact that nothing in this uncertain world comes with a guarantee. 
 
 Do you know the only thing in life that is guaranteed?
 
