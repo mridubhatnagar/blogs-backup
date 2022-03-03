@@ -12,7 +12,7 @@ Remember reading?
 - Dominos service guarantee of 30 minutes or pizza free
 - Blinkit sells 10-minute grocery delivery at your doorstep
 
-The happy consumer who was seeking guarantee falls into the trap. Everything in life is governed by randomness. 
+The happy consumer who seeks guarantee falls into the trap. Everything in life is governed by randomness. 
 
 Burning midnight oil might increase the probability of a better future. But, there is no guarantee. Everyone has their own learning capacity and speed. It cannot be generalized if the learner will grasp what is taught in the mentioned time. 
 
