@@ -8,7 +8,7 @@ Putting here a list of some questions that might be good to ask yourself before 
 
 1. What is the reason behind thinking of quitting the job?
 2. What is the cost you are paying by staying at your current job?
-3. Are you continuously learning new things? or Has the work become monotonous?
+3. Are you continuously learning new things? 
 4. How do the future prospects of the organization look like?
 5. How is the team culture, work culture?
 6. Is the reason for thinking of quitting due to burnout?
@@ -23,6 +23,7 @@ Putting here a list of some questions that might be good to ask yourself before 
 15. You are quitting because you want to quit? Or quitting because that is what is going around in the market. So, why not?
 16. Are you aware of the interview process in your industry?
 17. What is the short-term consequence of taking the decision. What is the long-term consequence of taking the decision?
+18. Has the work become monotonous?
 
 This is the list of questions that I could think of. I'll keep updating the list on the go as I figure out more relevant questions that can be thought of before taking the call. How much weight you give to each question might vary. Preference of importance might vary. But, I think finding answers will help give some clarity. 
 
