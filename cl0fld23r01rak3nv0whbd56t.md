@@ -26,6 +26,7 @@ Putting here a list of some questions that might be good to ask yourself before 
 18. What is the short-term consequence of taking the decision?
 19. What is the long-term consequence of taking the decision? 
 20. Has the work become monotonous?
+21. Market Economics? 
 
 This is the list of questions that I could think of. I'll keep updating the list on the go as I figure out more relevant questions that can be thought of before taking the call. How much weight you give to each question might vary. Preference of importance might vary. But, I think finding answers will help give some clarity. 
 
