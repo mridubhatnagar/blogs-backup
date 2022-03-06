@@ -20,10 +20,12 @@ Putting here a list of some questions that might be good to ask yourself before 
 12. How does your network look like? If you put forth your resume to anyone in your network would they vouch for you?
 13. Due to the uncertainty of life have the financial responsibilities and needs increased all of a sudden?
 14. How does your progress in the organization look like? Is there improvement from who you were when you joined the organization and who you are right now?
-15. You are quitting because you want to quit? Or quitting because that is what is going around in the market. So, why not?
-16. Are you aware of the interview process in your industry?
-17. What is the short-term consequence of taking the decision. What is the long-term consequence of taking the decision?
-18. Has the work become monotonous?
+15. You are quitting because you want to quit? 
+16. Quitting because that is what is going around in the market. So, why not?
+17. Are you aware of the interview process in your industry?
+18. What is the short-term consequence of taking the decision?
+19. What is the long-term consequence of taking the decision? 
+20. Has the work become monotonous?
 
 This is the list of questions that I could think of. I'll keep updating the list on the go as I figure out more relevant questions that can be thought of before taking the call. How much weight you give to each question might vary. Preference of importance might vary. But, I think finding answers will help give some clarity. 
 
