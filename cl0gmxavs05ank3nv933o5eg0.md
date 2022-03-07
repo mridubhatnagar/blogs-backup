@@ -1,6 +1,6 @@
 ## Do you want to ask any questions about the organization?
 
-Interviews are a 2-way process. As much as the company wants to you know about you. You also have an opportunity to ask questions about the company.  
+Interviews are a 2-way process. As much as the company wants to know about you. You also have an opportunity to ask questions about the company.  
 
 Below are a list of questions you can ask when at the end of your interview you are asked Do you have any questions for us?
 
