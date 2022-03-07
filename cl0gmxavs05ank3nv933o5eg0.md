@@ -35,5 +35,6 @@ Below are a list of questions you can ask when at the end of your interview you 
 Along with this cross-Posting the exhaustive list Julia Evans has put up. To re-visit whenever required.
 https://jvns.ca/blog/2013/12/30/questions-im-asking-in-interviews/
 
+In my experience, the challenge is in getting honest answers. A lot of times what is said before joining and what you experience after joining is out of sync. And, you cannot really do anything about it.
 
 This is written so that I don't forget and re-visit this and pick up things from here.
