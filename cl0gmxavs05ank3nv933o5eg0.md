@@ -31,6 +31,8 @@ Below are a list of questions you can ask when at the end of your interview you 
 25. Whenever a team member is stuck at something. How do work together as a team and help them get unstuck?
 26. Is there documentation for services?
 27. What is the process of knowledge transfer? 
+28. How many women are part of the engineering team?
+29. How many women are in leadership roles in the organization?
 
 Along with this cross-Posting the exhaustive list Julia Evans has put up. To re-visit whenever required.
 https://jvns.ca/blog/2013/12/30/questions-im-asking-in-interviews/
