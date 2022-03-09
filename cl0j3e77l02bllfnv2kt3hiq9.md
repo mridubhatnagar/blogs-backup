@@ -19,9 +19,7 @@ Overworking might take a toll on well being of self. And, it might feel like lea
 
 If the reason for thinking of taking a sabbatical is burnout. And, it is not possible to take a sabbatical. In my opinion, taking short breaks. Reducing the amount of work. All these things can help. 
 
-Writing because I have been there, done that. The decision to quit was an abrupt one with no planning. Things did go south. The reason for the call was burnout. And, due to the severity of burnout, I couldn't really think through it. Quitting seemed the right thing to do.
-
-This is written to think through the process before making any decision if anytime in the future the need arises.  
+Been there, done that. However, I didn't think through to this extent. This is written to think through the process before making any decision if anytime in the future the need arises.  
 
 Ps: 
 
