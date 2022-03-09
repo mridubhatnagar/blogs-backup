@@ -25,4 +25,4 @@ Ps:
 
 1. If your answer to taking a sabbatical is "Hell Yeah". During your sabbatical also find an answer to give to the HRs of the next employer "Why is there a career break on your resume?" :D 
 
-2. If you yourself can become a dependent. And, you have parents you can fall back on. The game is altogether different. There is no need to find answers to the above-mentioned questions in that case.
+2. If you yourself can become a dependent. And, you have parents or anyone else you can fall back on. The game is altogether different. There is no need to find answers to the above-mentioned questions in that case.
