@@ -14,6 +14,8 @@ Overworking might take a toll on well being of self. And, it might feel like lea
 10. During the duration are there any big payments to make. Will you be able to do it with no income? (Think Insurance premiums, education fees, house rent, SIPs....etc)
 11. Short-term and long-term consequences of taking a break?
 12. Do you have dependents? With your savings will they be able to sustain?
+13. Economy?
+14. Do you have a single source of income or multiple sources of income?
 
 If the reason for thinking of taking a sabbatical is burnout. And, it is not possible to take a sabbatical. In my opinion, taking short breaks. Reducing the amount of work. All these things can help. 
 
