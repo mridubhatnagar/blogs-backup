@@ -11,7 +11,7 @@ Overworking might take a toll on well being of self. And, it might feel like lea
 7.  What do you plan to do during your sabbatical?
 8. Do you have the skills required to crack interviews and get back to work when you desire?
 9. How does your network look like? Are there people who are willing to vouch for you?
-10. During the duration are there any big payments to make. Will you be able to do it with no income? (Think Insurance premiums, education fees, house rent, SIPs....etc)
+10. During the duration are there any big payments to make. Will you be able to do it with no income? (Think Insurance premiums, education fees, house rent, SIPs, Loan....etc)
 11. Short-term and long-term consequences of taking a break?
 12. Do you have dependents? With your savings will they be able to sustain?
 13. Economy?
