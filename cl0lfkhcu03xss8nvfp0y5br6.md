@@ -31,7 +31,7 @@ Here is a list of questions for you to answer and find the answer for yourself.
 1. Suppose the only thing that matters to you is brand name. Out of the list of colleges that you can choose from pick the college that is a brand. 
 2. If the placement and a good alumni network are what you value. Then choose the one which offers that. Let go of the brand name. And, other factors as they are of lower importance to you.
 
-## What if you land in the wrong college?
+## What if you land in the wrong college. Then what?
 There are trade-offs sure. But, nothing ground-breaking happens. You can make your way through.
 
 - Make good friends. Learn from them. 
@@ -43,6 +43,7 @@ There are trade-offs sure. But, nothing ground-breaking happens. You can make yo
 
 1. Colleges are businesses. Websites are for marketing. Good enough possibility that truth is not being sold. Reach out to people.
 2. Debating on the choice of college is a waste of time. Often, we forget the fact that the factor that is of value to you might not be the factor that is of value to me.
+3. In the real-world identifying what is false marketing and what is genuine information is difficult. 
 
 More options lead to a paradox of choice. If there are no options. Probably no need to think through. :) 
 
