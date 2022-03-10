@@ -15,7 +15,7 @@ Here is a list of questions for you to answer and find the answer for yourself.
       - Brand Name
       - Faculty
 
-3. Rank the following factors. Rank from 1-6. The most important factor is ranked 1. The least important factor is ranked 6. 
+3. Rank the following factors? (Rank from 1-6. The most important factor is ranked 1. The least important factor is ranked 6. )
       - Course curriculum
       - Placements
       - Location
