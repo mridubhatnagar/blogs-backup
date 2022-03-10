@@ -26,7 +26,7 @@ Here is a list of questions for you to answer and find the answer for yourself.
 
 4. Look at the college data you have. For each check which college is offering you the thing which is most important to you?
 
-## Some Examples:
+#### Some Examples:
 
 1. Suppose the only thing that matters to you is brand name. Out of the list of colleges that you can choose from pick the college that is a brand. 
 2. If the placement and a good alumni network are what you value. Then choose the one which offers that. Let go of the brand name. And, other factors as they are of lower importance to you.
