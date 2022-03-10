@@ -44,6 +44,7 @@ There are trade-offs sure. But, nothing ground-breaking happens. You can make yo
 1. Colleges are businesses. Websites are for marketing. Good enough possibility that truth is not being sold. Reach out to people.
 2. Debating on the choice of college is a waste of time. Often, we forget the fact that the factor that is of value to you might not be the factor that is of value to me.
 3. In the real-world identifying what is false marketing and what is genuine information is difficult. 
+4. Not necessary that websites are updated. Also, a professor might have visited the college only once. And, still you might end up seeing faculty name on website.
 
 More options lead to a paradox of choice. If there are no options. Probably no need to think through. :) 
 
