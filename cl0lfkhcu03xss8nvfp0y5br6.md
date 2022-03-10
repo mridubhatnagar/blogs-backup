@@ -1,6 +1,6 @@
 ## How to decide which college to go to?
 
-I was thinking about this problem statement for the last couple of days. Here, is what I have come up with. This is also written because the last 2 years have been really tough for families. Young kids have lost parents. If you happen to be someone at the crossroads. I hope this write-up helps you and you find your way through.  
+I was thinking about this problem statement for the last couple of days. Here, is what I have come up with. This is also written because the last 2 years have been really tough for families. Young kids have lost parents. If you happen to be someone at the crossroads. I hope this write-up helps you and you find your way through. Amid many challenges you must be facing. I hope deciding college isn't one. And, this helps you. 
 
 Here is a list of questions for you to answer and find the answer for yourself.
 
