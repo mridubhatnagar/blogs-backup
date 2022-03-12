@@ -22,7 +22,7 @@ To get good at something. Hands down, Practice.
 
 4. The story we tell ourselves leads to the actions we take. If you want to change your story, change your actions first. We become what we do.
 
-5. Once you decide to trust yourself, you will have found your passion. Seeking passion is a way to hide. You are not born with passion.  Only after we do difficult work it become our calling. Only after we trust the process it becomes our passion.
+5. Once you decide to trust yourself, you will have found your passion. Seeking passion is a way to hide. You are not born with passion.  Only after we do difficult work it becomes our calling. Only after we trust the process it becomes our passion.
 
 6. We live in an outcome-focused culture. When we focus solely on the outcome we forget about the journey and it encourages us to give up to early. 
 
