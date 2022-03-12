@@ -54,9 +54,11 @@ To get good at something. Hands down, Practice.
 
 20. Practice demands assertions. When there are no guarantees.
 
+21. From childhood due to competitive exams etc.  Lead to a scarcity mindset. As, if life is a zero-sum game. In reality, the mindset has to be an abundance mindset. If someone wins doesn't mean you are going to lose.
+
 ## Personal Opinion
 
-The ideas presented in the book are themselves not novel. It is Seth's way of presentation that make those all stand out. The same point is explained using multiple examples. And, at times it might feel repetitive. But, that shouldn't matter. Take the good things. Let go of the rest.
+The ideas presented in the book are themselves not novel. It is Seth's way of presentation that makes those all stand out. The same point is explained using multiple examples. And, at times it might feel repetitive. But, that shouldn't matter. Take the good things. Let go of the rest.
 
 A lot of what is written in the book makes sense. Especially, how we are collectively brainwashed based on popular society narratives.
 
