@@ -54,7 +54,7 @@ To get good at something. Hands down, Practice.
 
 20. Practice demands assertions. When there are no guarantees.
 
-21. From childhood due to competitive exams etc.  Lead to a scarcity mindset. As, if life is a zero-sum game. In reality, the mindset has to be an abundance mindset. If someone wins doesn't mean you are going to lose.
+21. From childhood competitive exams etc lead to a scarcity mindset. As, if life is a zero-sum game. In reality, the mindset has to be an abundance mindset. If someone wins doesn't mean you are going to lose.
 
 ## Personal Opinion
 
