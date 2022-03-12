@@ -1,7 +1,10 @@
 ## March, Good Read: The Practice by Seth Godin (Book Gist)
 
 The world never gets tired and keeps talking about talent. When you give it a thought. Talent is a natural ability. However, what we forgot or rather no talks about is what is it that makes you talented in something?
-When you are skilled at something people will say you are talented. How was that skill built? The Practice. Skills are earned. It is all about practice. But, you see. No, one talks about practice. 
+When you are skilled at something people will say you are talented. 
+
+How was that skill built? 
+The Practice. Skills are earned. It is all about practice. But, you see. No, one talks about practice. 
 With the book The Practice. Seth Godin talks about what no one talks about. Practice.
 To get good at something. Hands down, Practice.
 
