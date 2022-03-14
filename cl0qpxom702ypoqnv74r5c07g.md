@@ -23,7 +23,7 @@ Is it for the same reason that you are assured that the spouse would show up if 
 
 **Why have kids?**
 
-Have kids because then in old age.  You have hope that they'll be there for you.
+Have kids because then in old age.  You have hope that they'll be there for you. I'm not not saying this. This is what I have heard. 
 
 **Where did all the friends go from the equation all of a sudden?**
 
