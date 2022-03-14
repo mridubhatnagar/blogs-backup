@@ -113,3 +113,9 @@ And, there we were. The final day came. 25-30 girls showed up. My happiness had 
 
  
 ![WhatsApp Image 2022-03-15 at 1.18.25 AM (2).jpeg](https://cdn.hashnode.com/res/hashnode/image/upload/v1647287626368/gO_vRoQjf.jpeg)
+
+## What is the current status of DjangoGirls Indore?
+
+I wanted to test the water. And, find out the reason why such events are not hosted in tier 3 cities. Found the answer the hard way. There are constraints. But, then you do it anyway.
+
+As of now, no plans of running it again. 
