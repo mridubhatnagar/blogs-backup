@@ -97,7 +97,7 @@ This is not a recurring event. Early once works. Depending on how much funds you
 
 ## Why I am sharing all of this?
 
-Because you can do it. The manual doesn't help when you are operating under constraints. And, this was worth having experience in itself. Satisfying, to say the least. 
+Because you can do it too. The manual doesn't help when you are operating under constraints. And, this was worth having experience in itself. Satisfying, to say the least. 
 And, my quest for doing something more than the day's job. Led to this. :) 
 
 ## The Final Day. 31st August 2019
