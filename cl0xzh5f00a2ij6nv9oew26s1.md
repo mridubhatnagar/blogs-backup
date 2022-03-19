@@ -100,6 +100,14 @@ Linkedin Learning opportunity striking was luck at play. I had no contacts, no r
 %[https://www.linkedin.com/learning/python-data-structures-sets-and-frozen-sets/]
 
 
+## What I could have done better and you can take care of?
+
+- Online is unlike offline. Make sure, don't repeat yourself. 
+- I was speaking, recording spontaneously. And, didn't write the content beforehand. Writing beforehand might have helped at places. 
+
+
+
+
 
 
 
