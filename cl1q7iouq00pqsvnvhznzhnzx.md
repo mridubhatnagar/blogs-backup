@@ -29,11 +29,11 @@ Example - If you want to build a reading habit. On days when you don't feel like
 
 ## Personal Opinion
 
-In a world where people are running after outcomes. It is nice that Clear made a choice to highlight the process. The habit-building techniques mentioned I think create some level of friction in the whole habit-building process. Habit Stacking, categorizing habits into cue, craving, response, and reward is a challenge and might create even more resistance. 
+In a world where people are running after outcomes. It is nice that Clear made a choice to highlight the process. The habit-building techniques mentioned create some level of friction in the whole habit-building process. Habit Stacking, categorizing habits into cue, craving, response, and reward is a challenge and might create even more resistance. 
 
-I think building and breaking habits is directly dependent on the mind. How much self-control we have. What are your personal narratives?
+Building and breaking habits is directly dependent on the mind. How much self-control we have. What are your personal narratives?
 
-21 days, 91 days, 100 day challenges whatever keep surfacing on the web are marketing. You can do something for 100 days. And, then decide to quit. That's it. You quit. Those 100 days didn't build the habit.          
+21 days, 91 days, 100-day challenges whatever keep surfacing on the web are marketing. You can do something for 100 days. And, then decide to quit. That's it. You quit. Those 100 days didn't build the habit.          
 
 
   
