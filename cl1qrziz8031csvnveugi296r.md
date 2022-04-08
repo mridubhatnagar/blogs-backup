@@ -19,7 +19,7 @@ In the everyday grind, the mind often oscillates between past events and the fut
 
 6. Continually stretch your belief system as to what is possible for you to achieve. 
 
-7. All you have is now. The measure of our peace of mind and the measure of our personal effectiveness are determined by how much we are to live in present moment. Regardless of what happened yesterday and what might happen tomorrow. NOW is where you are.
+7. All you have is now. The measure of our peace of mind and the measure of our personal effectiveness are determined by how much we are to live in the present moment. Regardless of what happened yesterday and what might happen tomorrow. NOW is where you are.
 
 8. The thing about being happy is that when you are happy you are mostly involved with the present. We decide to be happy on the journey, and not just when we reach our destination.
 
@@ -33,3 +33,5 @@ In the everyday grind, the mind often oscillates between past events and the fut
 
 13. Wherever you are, it is the place to start. The effort you expend today does make a difference.
 
+
+Some ideas present in this book overlap with the ideas present in his other book Follow your Heart. The book worked as a refresher and reminder about what to focus on. 
