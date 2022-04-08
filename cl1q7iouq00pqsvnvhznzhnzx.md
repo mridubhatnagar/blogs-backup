@@ -27,7 +27,7 @@ Example - If you want to build a reading habit. On days when you don't feel like
 
 9. Stop procrastination by following the law of minimum effort. If you don't want to do something. Try doing it for 2 minutes. You'll then come in flow state and not try to procrastinate.
 
-## Personal Opinion On Book
+## Personal Opinion
 
 In a world where people are running after outcomes. It is nice that Clear made a choice to highlight the process. The habit-building techniques mentioned I think create some level of friction in the whole habit-building process. Habit Stacking, categorizing habits into cue, craving, response, and reward is a challenge and might create even more resistance. 
 
