@@ -2,7 +2,7 @@
 
 I come from a humble background. I'm fortunate and proud that my parents raised both me and my brother equally irrespective of gender. Gave us full freedom to take our decisions on our own. I was never scolded for low grades. And, they didn't compare my performance with that of other kids. My parents gave me everything I could have ever asked for. Loss of freedom is one thing I fear when I think about the next stage in life. As girls don't have the privilege of living with their own parents and eventually it is the home that gets changed. 
 
-On 17th December my father left for his usual work visit to meet dealers present in different cities. And, strangely so there was no return. I had heard stories about deaths in the '50s. I considered such events to be rare events. I had the good fortune of seeing my paternal and maternal grandparents. I never accepted the likelihood that early death can happen in the family too. You don't really have any control over events that happen to you. He was merely 55 years and we lost him on December 28.
+On 17th December my father left for his usual work visit to meet dealers present in different cities. And, strangely so there was no return. I had stories of losing parent at a young age. The only thing I didn't know was, that I shared the same fate. I considered such events to be rare events. I had the good fortune of seeing my paternal and maternal grandparents. I never accepted the likelihood that early death can happen in the family too. You don't really have any control over events that happen to you. He was merely 55 years and we lost him on December 28.
 
 It was sudden. All it took was 5 days for life to turn upside down.
 
