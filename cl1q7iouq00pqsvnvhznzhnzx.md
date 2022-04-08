@@ -8,7 +8,7 @@ Atomic Habits by James Clear answers what is a habit, types of habits, how to bu
 
 ## Things to Remember:
 
-1. Avoid having Zero Days. There are days when you might not feel like doing anything. On those days make sure to a small step. 
+1. Avoid having Zero Days. There are days when you might not feel like doing anything. On those days make sure to take a small step. 
 Example - If you want to build a reading habit. On days when you don't feel like it. Try reading the minimum possible. Maybe 1 line, 1 page.
 
 2. Habits can be divided into 2 broad categories. Outcome-based habits and Identity-based habits. Outcome-based habits focus on what you want to achieve. Identity-based habits focus on what you want to become.
