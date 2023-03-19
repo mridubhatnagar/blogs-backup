@@ -104,5 +104,4 @@ From Rishikesh, I was off to Mumbai. And, hence found it a good opportunity to t
 
 ## End Note
 
-That's a wrap from my end. That's all I did.  
-Grateful to the universe for whatever is given. And, everything I managed to do.
+That's a wrap from my end. That's all I did. Thankful to everyone who stood beside me in the dark hour. Grateful to the universe for whatever is given. And, everything I managed to do.
