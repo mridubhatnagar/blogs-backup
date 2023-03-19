@@ -92,7 +92,7 @@ Did inflatable kayaking in Rishikesh with **Team4Adventure** for 2 consecutive d
 
 ### Bungee Jumping
 
-Jumped from India's Highest Bungee Point with a height of 83 metres by Jumpin Heights in Rishikesh.
+Jumped from India's Highest Bungee Point with a height of 83 metres by **Jumpin Heights** in Rishikesh.
 
 ![](https://cdn.hashnode.com/res/hashnode/image/upload/v1679243393177/8c3c52b9-deaf-47d0-b1ef-369b7817b2bf.png align="center")
 
