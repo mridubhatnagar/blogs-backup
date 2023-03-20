@@ -22,7 +22,7 @@ It was all possible with the support and help of my teammates. Being part of a g
 
 ## Technical Learning
 
-Learning and Tinkering with HTML, CSS, and Javascript. Built 2 tiny projects.
+Learning and Tinkering with HTML, CSS, and Javascript. Built 2 tiny projects. Playing around SQL. Experimenting with writing long queries to do the task at hand. Instead of multiple smaller queries.
 
 ## Books Read
 
