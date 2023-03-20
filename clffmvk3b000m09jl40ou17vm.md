@@ -16,7 +16,7 @@ Lost my father in December 2021. Coming to terms with this reality has been toug
 
 ## Work
 
-Grateful to be working with the team I love and enjoy working with. Responsible to handle one critical service end-to-end single-handedly. Did RCA for production issues, and fixed the issues. Worked on enhancements, and maintenance. Every contribution has helped in making the service robust and stable.
+Grateful to be working with the team I love and enjoy working with. Responsible to handle one critical service end-to-end single-handedly. Developed many new features, worked on enhancements of existing features and maintained the service. Every contribution has helped in making the service robust and stable.
 
 It was all possible with the support and help of my teammates. Being part of a good team is peace of mind.
 
