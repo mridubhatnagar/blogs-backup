@@ -87,6 +87,8 @@ One of the known perks of being part of a remote organization is you can work fr
     
 * Started cooking meals.
     
+* On and off swimming. Couldn't be continued due to the lack of any facility that has a big pool. :(
+    
 
 ## Adventure Experiences Lived
 
