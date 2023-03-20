@@ -32,11 +32,13 @@ It was difficult to focus on anything. Be it life's lows or good times. Every ti
     
 * Attitude is Everything
     
-* Atomic Habits
+* Atomic Habits - James Clear
     
 * The Psychology of Money
     
-* Being Happy
+* Being Happy - Andrew Mathews
+    
+* I came upon a Lighthouse - Shantanu Naidu
     
 
 ## Places Visited (Travel)
