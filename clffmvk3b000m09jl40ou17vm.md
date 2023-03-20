@@ -8,7 +8,7 @@ slug: year-in-review-2022-in-a-nutshell
 
 Too late to reflect upon the year that passed by. Nonetheless, as they say, better late than never.
 
-Will divide the article into different sections. And, put some light on what was done.
+I have divided the article into different sections. And, put some light on what was done.
 
 ## Personal Life
 
@@ -19,6 +19,10 @@ Lost my father in December 2021. Coming to terms with this reality has been toug
 Grateful to be working with the team I love and enjoy working with. Responsible to handle one critical service end-to-end single-handedly. Did RCA for production issues, and fixed the issues. Worked on enhancements, and maintenance. Every contribution has helped in making the service robust and stable.
 
 It was all possible with the support and help of my teammates. Being part of a good team is peace of mind.
+
+## Technical Learning
+
+Learning and Tinkering with HTML, CSS, and Javascript. Built 2 tiny projects.
 
 ## Books Read
 
