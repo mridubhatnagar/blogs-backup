@@ -73,7 +73,8 @@ All new concepts that you learn in tech. I feel are always work in progress. Or 
 1\. Handful of friends that I have live in a different city. Made no attempt to make new friends. Close to no socialisation. And, maybe this is the reason for peak level of consistency.  
 2\. Avoided meeting known ones be it peers or relatives. Because of the same discussion about marriage. I have no answers yet. Don't want to discuss either. Got anxious, left room...discussions. Disagreements. It is chaotic to say the least.  
 3\. Wanted to travel more. Due to personal limitations and responsibilities couldn't.  
-4\. Couldn't prioritise book reading. No regrets either.
+4\. Couldn't prioritise book reading. No regrets either.  
+5\. Couldn't find time to write either.
 
 ## Things I am grateful for 🙏
 
