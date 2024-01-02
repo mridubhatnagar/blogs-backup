@@ -60,7 +60,7 @@ All new concepts that you learn in tech. I feel are always work in progress. Or 
 
 ## Eating Habits that changed for the good
 
-1\. Apple Oats Smoothie became the go-to breakfast meal.  
+1\. Apple Oats Smoothie became the go-to breakfast meal. No honey, no sugar. Only a date for sweetness.  
 2\. Stopped bringing and consuming refined oil. Now, it is either olive oil or filtered groundnut oil.  
 3\. Stopped bringing and consuming biscuits, rusks, namkeen. Switched to healthier alternatives foxnut, puffed rice, sweet potato, nuts, channa.  
 4\. Finally, took the leap of faith and started consuming protein powder by the whole truth foods. Started having protein bars when travelling.  
@@ -95,7 +95,7 @@ A resounding YES!!
 ## Word Of Caution
 
 Everything said and done. Don't be inspired by reading this. It isn't worth it. :)  
-Maybe deciding partner is the most important decision. Everything else could have been done later. Maybe a day's job, partner, kids is all that matters.  
-  
+Maybe deciding partner is the most important decision. Everything else could have been done later. Maybe a day's job, partner, kids is all that matters.
+
 Nonetheless. I am happy with what I did. You do you.  
 Only problem is there is limited free will. And, you cannot fight everything.
