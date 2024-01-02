@@ -1,8 +1,9 @@
 ---
-title: "2023 - Reflection"
+title: "2023 - Summarised"
 datePublished: Tue Jan 02 2024 09:40:42 GMT+0000 (Coordinated Universal Time)
 cuid: clqw5sq1d000e08lb7wo058xe
-slug: 2023-reflection
+slug: 2023-summarised
+cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1704188647490/26c273a7-2710-4ceb-88a2-84343d8f54cf.jpeg
 ogImage: https://cdn.hashnode.com/res/hashnode/image/upload/v1704188414083/975eb40b-89b2-44c8-a42d-c764c91dcf7a.jpeg
 
 ---
