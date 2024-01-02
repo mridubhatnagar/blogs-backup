@@ -10,6 +10,8 @@ ogImage: https://cdn.hashnode.com/res/hashnode/image/upload/v1704188414083/975eb
 
 Before I begin with 2024. Time to reflect on the year that passed by, 2023. At a macroscopic level 2023 has been kind personally as well as professionally. I am grateful that it turned out that way. When, seen at microscopic level, I have had fare share of days where I struggled to navigate my way forward.
 
+Below is a high level view of everything I was involved into. Throughout the year.
+
 ## Adventure Sports:
 
 1\. Scuba Diving. Freaked out, Hence, no pics. HA HA ... 😆  
