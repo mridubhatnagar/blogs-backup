@@ -33,7 +33,7 @@ Below I share the benefits of each type of class. Based on what you prioritise. 
 2\. Smaller batch size.  
 3\. Gives personal attention.  
 4\. Reduces friction. Don't choose a class which is so far that everyday you have traffic as an excuse for not showing up.  
-5\. Don't choose online aren't motivated enough to show up alone on the mat. Without others by your side.
+5\. Don't choose online if you aren't motivated enough to show up alone on the mat. Without others by your side.
 
 If you are looking for general fitness activities and socialisation. Instead, of specialisation. Then, I think places like **cult** are the place to go.
 
