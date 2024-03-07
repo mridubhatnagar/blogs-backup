@@ -29,3 +29,5 @@ tags: finance, life-skill
 ![](https://cdn.hashnode.com/res/hashnode/image/upload/v1709823674773/32bfbb51-418e-428f-b4d8-0c6dc655266f.png align="center")
 
 4\. Follow this and monitor each of your accounts for 3 months. This way you would be able to identify if your spending's are more, are your savings on track?
+
+5\. Moving money from invest-it account to spend-it account is not allowed.
