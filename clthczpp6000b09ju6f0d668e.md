@@ -7,7 +7,7 @@ tags: finance, life-skill
 
 ---
 
-**Disclaimer** - These are notes and takeaway from re-reading **Chapter 1 - Don't Stash that cash** from Monika Halan's book on personal finance **Let's Talk Money**.
+**Disclaimer** - These are notes and takeaway from re-reading **Chapter 2 - Don't Stash that cash** from Monika Halan's book on personal finance **Let's Talk Money**.
 
 1\. Have 3 separate bank accounts. Label each of the accounts **Income Account**, **Spend-it** account and **Invest it** account respectively.
 
