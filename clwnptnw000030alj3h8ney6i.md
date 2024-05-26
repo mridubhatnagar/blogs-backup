@@ -60,6 +60,8 @@ In one of the yoga workshops I recently attended. They had beautifully summarize
 
 6\. Learning something new everyday. When you are constantly learning. Life doesn't feel monotonous.
 
+7\. Outlook towards learning and trying a new thing has changed. Falling in any asana is part of the learning process. Likewise, when it comes to work. Failing at things is a part of learning process. It teaches you the correct way to do approach and learn things.
+
 Grateful for this journey. Grateful for being able to stay consistent with the practice. And, grateful to have found a good teacher and a good yoga school. :o)
 
 Thank you for reading!!!
