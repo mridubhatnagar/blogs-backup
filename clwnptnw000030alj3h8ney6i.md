@@ -1,5 +1,5 @@
 ---
-title: "Personal Journey  Of  Yoga"
+title: "Personal Journey  Of  Learning Yoga (Asanas)"
 datePublished: Sun May 26 2024 15:49:37 GMT+0000 (Coordinated Universal Time)
 cuid: clwnptnw000030alj3h8ney6i
 slug: personal-journey-yoga
