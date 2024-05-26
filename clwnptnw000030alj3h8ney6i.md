@@ -1,5 +1,5 @@
 ---
-title: "Personal Journey - Yoga"
+title: "Personal Journey  Of  Yoga"
 datePublished: Sun May 26 2024 15:49:37 GMT+0000 (Coordinated Universal Time)
 cuid: clwnptnw000030alj3h8ney6i
 slug: personal-journey-yoga
@@ -27,6 +27,8 @@ and friends alike.
 After father's passing away, one lesson learned was to take care of health.
 
 4\. I enjoy playing and being outdoors. Some years back I had tried White Water Kayaking. Couldn't do it. Being physically fit seemed the way to be able to give it a shot again.
+
+5\. Staying at home in a tier-2 city. And, no social circle.
 
 ## **Why I stayed with Yoga?**
 
