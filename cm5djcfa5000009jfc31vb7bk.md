@@ -19,7 +19,7 @@ had I not gone and practiced in Mysore. Maybe I wouldn’t have felt it. Ustad Z
 
 2\. 🧘‍♀️ In February, attended a workshop in Mysore on Yogic Philosophy and Asana Practice. While the asana practice was way beyond my level and it was intimidating to be inside a room full of yoga teachers. My key takeaway from the workshop was **“Yoga is detachment from your attachment to suffering”**. I have personally experienced it. On the mat, if your mind wanders. You are bound to fall or miss the instruction.
 
-3\. 🙂 In Feb, after almost a year. We had hackathon and offsite. Lost the hackathon. Visited Dubare Elephant Camp. It was fun. Campfire night was one of the beautiful memories. Where whole team played Ware-wolf. What amazed me was how amazingly Thej hosted the game.
+3\. 🙂 In Feb, after almost a year. We had hackathon and offsite. Lost the hackathon. Visited Dubare Elephant Camp. It was fun. Campfire night was one of the beautiful memories. Where whole team played Werewolf. What amazed me was how amazingly Thej hosted the game.
 
 4\. 💔 Throughout the year, professionally performance was good. The service I developed and maintained had less escalations. Which gave me a little hope that maybe this year I might get some reward. Contrary to what was in my head. Company survived, the service got shut down, and I was laid off.
 
