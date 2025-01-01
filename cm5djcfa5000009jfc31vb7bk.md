@@ -9,7 +9,7 @@ tags: review
 ---
 
 2024, came with its fair share of highs and lows. While I am glad near and dear ones are all with me. However, the loss nation experienced as such. Felt like some personal loss. Be it Paramaguru Sharath Jois,  
-had I not gone and practiced in Mysore. Maybe I wouldn’t have felt it. Ustad Zakir Hussain, the name we have been reading since the school days, Mr. Ratan Tata he himself and his intiatives kept my faith in humanity alive. Dr Manmohan Singh’s contribution. It was felt because during his tenure I was in school. This was also the realization to do your own research and not rely on what media portraits to form your own opinion.
+had I not gone and practiced in Mysore. Maybe I wouldn’t have felt it. Ustad Zakir Hussain, the iconic Ad, Wah Taj !, Mr. Ratan Tata he himself and his intiatives kept my faith in humanity alive. Dr Manmohan Singh’s contribution. It was felt because during his tenure I was in school. This was also the realization to do your own research and not rely on what media portraits to form your own opinion.
 
 # Life
 
