@@ -3,7 +3,7 @@ title: "2024 - Recap"
 datePublished: Wed Jan 01 2025 06:47:54 GMT+0000 (Coordinated Universal Time)
 cuid: cm5djcfa5000009jfc31vb7bk
 slug: 2024-recap
-cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1735713858875/ece3dd9f-547c-4157-9087-9713ba1b0520.jpeg
+cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1735714242494/3e684d67-7d21-4371-a9ef-7b9fbf3ea917.jpeg
 tags: review
 
 ---
@@ -41,6 +41,8 @@ This is how my year went on a personal level.
 
 # Travel
 
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1735714275692/505e6bb6-39d3-4851-aaaf-7ddcbada31b5.jpeg align="center")
+
 Saw hills and the beaches, The most beautiful sunsets, some of the best scenic routes, roads covered with tree shed, tall trees on either sides, long walks and occassional cycling.
 
 1\. Mysore  
@@ -59,8 +61,8 @@ Travel experiences need a dedicated blog of its own. Maybe will write some time.
 1\. Yoga Sutra for Children - Roopa Pai  
 2\. Bhagvat Gita for Children - Roopa Pai  
 3\. Love Amongst the Bookshelves - Ruskin Bond  
-4\. Days at the Morasaki Bookshop  
-  
+4\. Days at the Morasaki Bookshop
+
 Looking forward to reading more fiction novels this year. Though no goals, no targets ;)
 
 # New Concepts learned
@@ -80,8 +82,8 @@ Looking forward to reading more fiction novels this year. Though no goals, no ta
 # New Hobby’s Started
 
 1\. Rubiks cube  
-2\. Jigsaw Puzzle - Started solving somewhere in the last quarter of the year. Here is the stat. Piece count ranging from 80 Pieces to 200 Pieces. Maybe some I have missed adding. Taking baby steps, someday will attempt 1000 pieces.  
-  
+2\. Jigsaw Puzzle - Started solving somewhere in the last quarter of the year. Here is the stat. Piece count ranging from 80 Pieces to 200 Pieces. Maybe some I have missed adding. Taking baby steps, someday will attempt 1000 pieces.
+
 3 - 150 Piece Puzzle  
 3 - 100 Piece Puzzle  
 1 - 125 Piece Puzzle  
@@ -94,4 +96,7 @@ This was the last puzzle for 2024.
 ![](https://cdn.hashnode.com/res/hashnode/image/upload/v1735713043029/b2d7acc5-e69e-4fe8-b396-492106eb3bc0.jpeg align="center")
 
 With this cute lil cupcake. Wish you a Happy New Year.  
-Thank you for reading.
+Thank you for reading.  
+  
+To every new person I have crossed path with this year. I am glad, our paths crossed. It was nice to meet you. 🙂  
+Everyone who has stayed, thank you. ❤️
