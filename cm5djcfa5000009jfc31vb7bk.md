@@ -11,7 +11,7 @@ tags: review
 2024, came with its fair share of highs and lows. While I am glad near and dear ones are all with me. However, the loss nation experienced as such. Felt like some personal loss. Be it Paramaguru Sharath Jois,  
 had I not gone and practiced in Mysore. Maybe I wouldn’t have felt it. Ustad Zakir Hussain, the name we have been reading since the school days, Mr. Ratan Tata he himself and his intiatives kept my faith in humanity alive. Dr Manmohan Singh’s contribution. It was felt because during his tenure I was in school. This was also the realization to do your own research and not rely on what media portraits to form your own opinion.
 
-This is how my year went on a personal level.
+# Life
 
 1\. 🤸‍♀️ Took the leap of faith, enrolled for a month’s course under Yogacharya Bharath Shetty in Mysore. This was also a reward to self for staying consistent with the practice in 2023. Was fortunate to meet several practitioners from different places across the globe. Loved it so much, that ended up enrolling for March as well.
 
@@ -96,7 +96,7 @@ This was the last puzzle for 2024.
 ![](https://cdn.hashnode.com/res/hashnode/image/upload/v1735713043029/b2d7acc5-e69e-4fe8-b396-492106eb3bc0.jpeg align="center")
 
 With this cute lil cupcake. Wish you a Happy New Year.  
-Thank you for reading.  
-  
+Thank you for reading.
+
 To every new person I have crossed path with this year. I am glad, our paths crossed. It was nice to meet you. 🙂  
 Everyone who has stayed, thank you. ❤️
