@@ -1,5 +1,5 @@
 ---
-title: "2024 - Recap"
+title: "All about 2024"
 datePublished: Wed Jan 01 2025 06:47:54 GMT+0000 (Coordinated Universal Time)
 cuid: cm5djcfa5000009jfc31vb7bk
 slug: 2024-recap
