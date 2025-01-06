@@ -6,8 +6,8 @@ slug: to-do-list-2025
 
 ---
 
-It has been several years since I have not made any new year resolutions. This year also there are no resolutions as such. Processes &gt; Results. Resolutions fail because they are result oriented.  
-  
+It has been several years since I have not made any new year resolutions. This year also there are no resolutions as such. Processes &gt; Results. Resolutions fail because they are result oriented.
+
 Trust the process. At a high level, this are some of the points I need to focus on.
 
 # Profession / Career related upskilling
@@ -37,9 +37,11 @@ Trust the process. At a high level, this are some of the points I need to focus 
 
 # Books
 
-Explore Fiction Novels - Ruskin Bond, RK Narayan and similar.  
-One of the to read non fictions - We the Citizens.  
-  
+1\. Room on the roof - Ruskin Bond  
+2\. Stories from the open roads - Ruskin Bond  
+3\. We the Citizens.  
+4\. Masala Lab  
+5\. The shooting star - Shrivya Nath
 
 # Write
 
