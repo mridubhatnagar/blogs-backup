@@ -41,7 +41,9 @@ Trust the process. At a high level, this are some of the points I need to focus 
 2\. Stories from the open roads - Ruskin Bond  
 3\. We the Citizens.  
 4\. Masala Lab  
-5\. The shooting star - Shrivya Nath
+5\. The shooting star - Shrivya Nath  
+6\. Anxious People - Fedrick Backman  
+7\. The Midnight Library - Matt Haig
 
 # Write
 
