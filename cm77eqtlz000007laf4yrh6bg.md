@@ -38,7 +38,7 @@ Above quote is a famous quote by George R.R Martin. Listing below some of the bo
 
 There may be more meetups than listed. These are the one’s I know off. You don’t need to be a avid reader to be part of the meetup’s. People are more than happy to help you start. However, you need to take the first step my showing up for the meetups. :)
 
-Reading culture has to grow, bookstores need to stay. Heads down reading and discussing novels would be interesting to see. Rather than heads down doom-scrolling. Reading is an emotion, experience. Talk to reader, you’ll know. 🙂
+Reading culture has to grow, bookstores need to stay. Heads down reading and discussing novels would be interesting to see. Rather than heads down doom-scrolling. Reading is an emotion, experience. Talk to a reader, you’ll know. 🙂
 
 Out of several things that might be happening to whine about. Reading culture making its way across India, tier 2 cities included. Is a positive change that I am quite proud off.
 
