@@ -19,7 +19,7 @@ Have been trying to learn a couple of new skills. Below listed are the current o
 2\. **Fitness** - Yoga, Swimming  
 3\. **Adventure Sport** - White Water Kayaking.
 
-It has been sometime since I am practicing yoga. One of the observation has been. It takes a long time to reach a level where you unlock a difficult asana. Eg. Headstand. And, once it starts happening. You need to move on. Moving on is the hard part. Moving on, is leads to growth. Easier said then done. As, there is often some kind of attachment towards the thing that you learned the hard way.
+It has been sometime since I am practicing yoga. One of the observation has been. It takes a long time to reach a level where you unlock a difficult asana. Eg. Headstand. And, once it starts happening. You need to move on. Moving on is the hard part. Moving on, leads to growth. Easier said then done. As, there is often some kind of attachment towards the thing that you learned the hard way.
 
 Same happened with swimming. You can’t get too comfortable with doing the same thing. For a very long time doing a somersault was the goal. Finally, when somersault got unlocked in 5ft pool. Coach, asked me to do new drills. So, that we could move on to flip turns.
 
