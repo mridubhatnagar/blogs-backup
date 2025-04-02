@@ -26,6 +26,6 @@ Same happened with swimming. You can’t get too comfortable with doing the same
 White water kayaking is by far the most challenging skill I am attempting to learn. Way beyond my league.  
 Each step is challenging. Not just physically, mentally too. Being right in the middle of river. River is not your regular environment. There is discomfort when you are upside down underwater. It’s an experience unlike swimming pool. Every time you need to brave the mind. That I shall come out fine.
 
-Finding each one to be quite challenging. Several times I question why am I even doing all this. And, then you persist every day. This is written to remind myself. Journey may be the tough. Stay put. 😊
+Finding each one to be quite challenging. Several times I question why am I even doing all this. And, then you persist every day. This is written to remind myself. Journey is for sure tough. Stay put. 😊
 
 Growth lies when there is discomfort. 🐢
