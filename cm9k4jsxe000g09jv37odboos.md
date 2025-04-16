@@ -6,7 +6,7 @@ slug: answers-to-blog-questionnaire
 
 ---
 
-I got tagged by [Yeshwanth in her blog](https://swamiyeswanth.com/blog/blog-questionnaire/) to take up this blog questionnaire.
+I got tagged by [Yeshwanth in his blog](https://swamiyeswanth.com/blog/blog-questionnaire/) to take up this blog questionnaire.
 
 ## Why did you start blogging in the first place ?
 
