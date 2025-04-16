@@ -12,8 +12,8 @@ I got tagged by [Yeshwanth in her blog](https://swamiyeswanth.com/blog/blog-ques
 
 **Backstory**  
 During my college days. I was fortunate to come across someone who I felt was doing more than what I have seen majority of people in my vicinity do. More in the sense, it was more than eat, sleep, work, repeat. He was able to pursue his passion as a lifestyle treks, kayaking, outdoors etc.  
-This was new for me. One clarity that I got during those days was I want to lead a life like this. There needs to be more to life.  
-  
+This was new for me. One clarity that I got during those days was I want to lead a life like this. There needs to be more to life.
+
 Fortunately, soon after college. When I got my internship. I got location Bangalore. Bangalore, was somehow the city I always wanted to visit. And, so far could never. Even before reaching Bangalore. I had done all the research about what all community events happen, when they happen. Outdoors being the main focus. As, I started living the life I had envisioned because of the person who inspired me. I wanted to somehow convey it them what am I doing and how are things.
 
 Coming back to why I start blogging. I used to hope, that maybe this person will read by chance. Though, that never happened. 😅
@@ -45,6 +45,10 @@ Never gave it a thought. :)
 
 ### Any future plans for your blog? Maybe a redesign, a move to another platform, or adding a new feature?
 
-Less likely, as I feel it is lot of effort to migrate. From a long time thinking of migrating all old blogs from Medium to hashnode. Have never been able to prioritize it.  
-  
+Less likely, as I feel it is lot of effort to migrate. From a long time thinking of migrating all old blogs from Medium to hashnode. Have never been able to prioritize it.
+
 Though if at all in future I do plan to. Then, reason for doing would be that readers are not able to comment or react on my current posts unless they have account on hashnode. Which is sad :(.
+
+### Who’s next?
+
+Everyone who I know write blogs. And, whose blogs I read. Has already taken this challenge. Hence, no nomination. :)
