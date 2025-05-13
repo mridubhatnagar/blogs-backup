@@ -10,15 +10,15 @@ Somewhere I had read “We must try learning hard things, that’s how we grow. 
 
 Consistency moves mountains. Something you thought you couldn’t do, you would be able to do if you stay consistent. Result of having this experience first hand because of yoga. I decided to enroll for kayaking. This time not for 4-5 days. Instead, for almost a month. Have gone several times for short spans but it never felt enough. Most likely due to intense fear. Everyone has some level of fear. Safe to say mine was paralyzing.
 
-I reached Rishikesh. The next day I was expected to show up for a pool session. To brush up whatever I had done in my previous visits. I did go. As part of kayaking, everyone carries their own boats to the start point. I had to change and come into kayaking gear. Was wearing the dry top ( dry top protects you from cold river water) it sort off got stuck. I felt breathless, I removed it again from half way. This was the first time when it hit me, maybe I cannot do it. Struggle with the sport itself is different, struggling with the gear, lifting the kayak, fitting the spray deck etc. Makes you feel demotivated. I was gasping for breath already. And, in my head questing what have I signed up for? Why do I want to do this ?  
-  
+I reached Rishikesh. The next day I was expected to show up for a pool session. To brush up whatever I had done in my previous visits. I did go. As part of kayaking, everyone carries their own boats to the start point. I had to change and come into kayaking gear. Was wearing the dry top ( dry top protects you from cold river water) it sort off got stuck. I felt breathless, I removed it again from half way. This was the first time when it hit me, maybe I cannot do it. Struggle with the sport itself is different, struggling with the gear, lifting the kayak, fitting the spray deck etc. Makes you feel demotivated. I was gasping for breath already. And, in my head questing what have I signed up for? Why do I want to do this ?
+
 I entered the pool. The pool water was so cold. Despite wearing a wet suit, dry top, skull cap. I was feeling cold. Peak level anxiety triggered. Before even sitting in the kayak. I tried to float, dip my face in water, backfloat. Dipping face in cold water was a real struggle. I finally, sat in the kayak. Going underwater while being in the kayak is part of the process. Did once or twice. Due to breathlessness, fear, anxiety. I asked them I want to quit. I am ready to do nothing and sit in rishikesh. But, not kayaking.
 
 My instructor told me this - “Quitting is easy, however mind you quitting will impact your own self esteem and moral. And, if you persist same thing will give you a sense of achievement and moral boost”. I decided to persist. We continued the drills. Instead of going all by myself. They asked me to hold hand and underwater. This helped reduce the anxiety. I still wasn’t comfortable with the whole gear, cold water.  
 More practice, and we reached a level where we had left last time the rescue drill i.e T-rescue.
 
-Next day, learn to kayak course was starting. This was the 4th time I was doing it. However, I was only as good as someone who was doing for first time. There was no river run. So, from that point of view I was at peace. Anxiety was still my friend. We did more drills. River water was better than the pool. But, yes cold. I wasn’t staying underwater. I wanted to chicken out of kayak as soon as possible.  
-  
+Next day, learn to kayak course was starting. This was the 4th time I was doing it. However, I was only as good as someone who was doing for first time. There was no river run. So, from that point of view I was at peace. Anxiety was still my friend. We did more drills. River water was better than the pool. But, yes cold. I wasn’t staying underwater. I wanted to chicken out of kayak as soon as possible.
+
 **We did more drills:**  
 1\. Going underwater by holding the instructor’s kayak with one hand and then coming up.  
 2\. Leaving the kayak going underwater and coming up using T-rescue.  
@@ -27,8 +27,8 @@ Next day, learn to kayak course was starting. This was the 4th time I was doing 
 
 Everytime before going underwater I had to brave my mind. I used to ask everyone around me for water to drink. Just to get more time and avoid going underwater. Next day was river run, which had class I rapids. It went well. However, due to my anxiety and fear. I just wanted to get done with the river run. Next day we practiced and went for river run. I didn’t flip. It went well.
 
-Next two days again there were river runs. My fear had not reduced. Everyday before going I used to call my mom. And, only thing I used to say was “I am scared, I have fear. Others are able to do it”. For a day or two she supported. Then, one day she responded “see for yourself, if you want to do it or not. Otherwise, put an end to it. Later don’t say you want go do it again.” That was the last day of me telling her anything about my fear.  
-  
+Next two days again there were river runs. My fear had not reduced. Everyday before going I used to call my mom. And, only thing I used to say was “I am scared, I have fear. Others are able to do it”. For a day or two she supported. Then, one day she responded “see for yourself, if you want to do it or not. Otherwise, put an end to it. Later don’t say you want go do it again.” That was the last day of me telling her anything about my fear.
+
 2 more days of river run. I didn’t flip and it went well. The basic kayak course ended. However, post this I was asked to do river run that is done on last day of the course i.e class II river run almost every day. All I wanted to do was class I. And, what I was made to do was class II river run. Then, post river run practice on flat section. As, T-rescue’s were happening fine. Despite the limited practice I was doing of underwater drills. They asked me to move to next drill i.e self rescue drill. Guitar roll and eskimo roll.
 
 You go underwater with your paddle, and come up on your own. Needs bit more time underwater, bit of flexibility, timing. If you miss the guitar roll then t-rescue. Going underwater wasn’t comfortable. And, when on the run you can flip. This was causing stress. And, then if you do wet exit. You swim the rapid.
@@ -76,4 +76,4 @@ If not the other rescues at least I should do the wet exit comfortably.
 If asked for a river run. There should be a resounding Yes, I am up for it.  
 Above all, be one with the water.
 
-Safe to say, that some of them are achieved.. 😀
+Safe to say, that some of them are achieved. Everything that I thought I would never, even some of that is achieved. Grateful to the team at team4adventure for making it possible and a workplace that gave me flexibility. All runs were done before work started.
