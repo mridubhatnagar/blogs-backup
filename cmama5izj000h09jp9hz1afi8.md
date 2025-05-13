@@ -6,9 +6,9 @@ slug: experience-almost-a-month-of-learning-white-water-kayaking
 
 ---
 
-Somewhere I had read “We must try learning hard things, that’s how we grow. Overtime distress tolerance increases through repetition. Mind will start to recognize the surroundings and form patterns. Distress will eventually change into curiosity.” What is theory without practical, I was right there living by doing White Water Kayaking.
+Somewhere I had read “We must try learning hard things, that’s how we grow. Overtime distress tolerance increases through repetition. Mind will start to recognize the surroundings and form patterns. Distress will eventually change into curiosity.” What is theory without practical, I was right there living it by doing White Water Kayaking.
 
-Consistency moves mountains. Something you thought you couldn’t do, you would be able to do if you stay consistent. Result of having this experience first hand because of yoga. I decided to enroll for kayaking. This time not for 4-5 days. Instead, for almost a month. Have gone several times for short spans but it never felt enough. Most likely due to intense fear. Everyone has some level of fear. Safe to say mine was paralyzing.
+Consistency moves mountains. Something you thought you couldn’t do, you would be able to do if you stay consistent. Result of having this experience first hand because of yoga. I decided to enroll for kayaking. This time not for 4-5 days. Instead, for almost a month. Have gone several times for short spans but it never felt enough. Most likely due to intense fear. Everyone has some level of fear. Mine was paralyzing.
 
 I reached Rishikesh. The next day I was expected to show up for a pool session. To brush up whatever I had done in my previous visits. I did go. As part of kayaking, everyone carries their own boats to the start point. I had to change and come into kayaking gear. Was wearing the dry top ( dry top protects you from cold river water) it sort off got stuck. I felt breathless, I removed it again from half way. This was the first time when it hit me, maybe I cannot do it. Struggle with the sport itself is different, struggling with the gear, lifting the kayak, fitting the spray deck etc. Makes you feel demotivated. I was gasping for breath already. And, in my head questing what have I signed up for? Why do I want to do this ?
 
