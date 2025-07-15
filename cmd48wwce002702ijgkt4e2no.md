@@ -105,8 +105,6 @@ All that being said, if you are still interested in knowing the why’s. Here is
 
 3\. Puzzle Library - There is a whatsapp community i.e Puzzle Library. You can put on their page. Share your puzzle with others, try out puzzles posted by others. It has some rules regarding how can one participate in it. I haven’t explored it yet.
 
-That’s all. This was more of a brain dump about everything I learned over time about jigsaw puzzles. On and off seeing pictures couple of friends, cousins did reach out and show interest. If you have been still at the fence. This is your sign, its never too old to try anything new. 😊
-
 ## Competitive Puzzling?
 
 Similar to speedcubing. There are speed puzzling competitions. There is also World Jigsaw Championship. Where people from different countries compete.
@@ -114,6 +112,8 @@ Similar to speedcubing. There are speed puzzling competitions. There is also Wor
 Within India, at Bangalore. Playful pursuits organizes Piece-Off. Which is speed puzzling competition. You can participate as Individual or as a team.
 
 Mumbai also organizes one.
+
+That’s all. This was more of a brain dump about everything I learned over time about jigsaw puzzles. On and off seeing pictures couple of friends, cousins did reach out and show interest. If you have been still at the fence. This is your sign, its never too old to try anything new. 😊
 
 **May mindfully putting pieces in place give you peace and happiness. Happy puzzling.** 🧩
 
