@@ -107,6 +107,14 @@ All that being said, if you are still interested in knowing the why’s. Here is
 
 That’s all. This was more of a brain dump about everything I learned over time about jigsaw puzzles. On and off seeing pictures couple of friends, cousins did reach out and show interest. If you have been still at the fence. This is your sign, its never too old to try anything new. 😊
 
+## Competitive Puzzling?
+
+Similar to speedcubing. There are speed puzzling competitions. There is also World Jigsaw Championship. Where people from different countries compete.
+
+Within India, at Bangalore. Playful pursuits organizes Piece-Off. Which is speed puzzling competition. You can participate as Individual or as a team.
+
+Mumbai also organizes one.
+
 **May mindfully putting pieces in place give you peace and happiness. Happy puzzling.** 🧩
 
 ![](https://cdn.hashnode.com/res/hashnode/image/upload/v1752566446427/7b1c1bad-97e4-4ef6-a0cb-0c02a2fbada1.jpeg align="center")
