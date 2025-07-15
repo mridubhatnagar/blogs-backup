@@ -25,7 +25,7 @@ Patients recovering from critical illness like Dementia, Alzheimer, stroke. Are 
 2\. **Wooden Puzzles** - All pieces are wooden. Pieces have whimsical shapes. This adds on to the challenge.  
 3\. **Acrylic Puzzles** - Not as common.
 
-## Ways you can increase the challenge ?  
+## Ways you can increase the challenge ?
 
 There are several ways you can up the challenge.
 
@@ -33,16 +33,15 @@ There are several ways you can up the challenge.
 2\. Solving puzzles which have different piece shapes rather then one with standard piece shapes.  
 3\. Puzzle having a difficult picture. Less color variation.  
 4\. Solve puzzles which have only color gradients no objects.  
-5\. Try puzzles with irregular boundary, shape. Rather than regular straight boundary.  
-  
+5\. Try puzzles with irregular boundary, shape. Rather than regular straight boundary.
+
 Below is one of the challenging ones I solved last month.
 
 ![](https://cdn.hashnode.com/res/hashnode/image/upload/v1752560226813/56bdd9da-b76d-4fc8-a610-82fe15c3c62e.jpeg align="center")
 
 ![](https://cdn.hashnode.com/res/hashnode/image/upload/v1752560336577/1ab68fd2-10b6-4462-925e-e0b5a5a74fd3.jpeg align="center")
 
-##   
-Progression in Jigsaw Puzzle?  
+## Progression in Jigsaw Puzzle?
 
 To each their own. Sharing my journey and progression with jigsaw puzzles.  
 Started with solving a cardboard puzzle of 150 pieces. Did 4-5 more puzzles of 150 pieces. When, I felt like I can explore more. I am able to do them. Explored wooden puzzles piece counts ranging from 70-140 pieces. Solving a higher piece count puzzle first and then moving to a puzzle with lower piece count doesn’t necessarily translate that you are regressing instead of progressing. It simply implies the puzzle can have some different challenge. This is how I see it.
@@ -71,18 +70,18 @@ Started with solving a cardboard puzzle of 150 pieces. Did 4-5 more puzzles of 1
 4\. PuzzleLab - Wooden puzzles, brand is based out of Canada. Has expensive puzzles, and challenging piece shapes and design. Usual piece count is 175 pieces, 300 pieces puzzle  
 5\. StumpCraft - Sells premium quality wooden puzzles. Puzzles are expensive. Piece count range from less than 100 to 600 & up.  
 6\. Ravensburger - Brand based out of US, sells premium quality cardboard puzzles. From 99 pieces to 1000+ pieces. Puzzles available on Amazon US, brands official website.  
-7\. NewYork Puzzle Company - Based out of US, sells cardboard puzzles. Piece count range starts from mini puzzles (99-100 pieces) to 1000 pieces puzzles.  
+7\. NewYork Puzzle Company - Based out of US, sells cardboard puzzles. Piece count range starts from mini puzzles (99-100 pieces) to 1000 pieces puzzles.
 
 ## Why jigsaw puzzles?
 
-Some time back at the book meetup. I was having a conversation with someone. Hot topic as usual was fiction vs non fiction. And, he quoted “At least reading non fiction feels like having some purpose to read the book. Unlike in fiction.” As we grow up, I think we start to see everything from the perspective of what will this activity help me learn? At times have started drawing random conclusions from events and occasions and to make it a social media post. In the process, often losing the point that some activities can only be for fun, to unwind and relax. In this hyper connected world.  
-  
+Some time back at the book meetup. I was having a conversation with someone. Hot topic as usual was fiction vs non fiction. And, he quoted “At least reading non fiction feels like having some purpose to read the book. Unlike in fiction.” As we grow up, I think we start to see everything from the perspective of what will this activity help me learn? At times have started drawing random conclusions from events and occasions and to make it a social media post. In the process, often losing the point that some activities can only be for fun, to unwind and relax. In this hyper connected world.
+
 All that being said, if you are still interested in knowing the why’s. Here is list of things solving jigsaws can help with.
 
 1\. **Patience** - Patience isn’t a pre-requisite to start jigsaw puzzling. It is something that can be developed.  
-2. **Focus and concentration** - Almost everyone complains about how attention timespan is getting shorter. As a result of consuming short form content, youtube shorts, reels, tweets. Jigsaw is one of the ways to turn it other way around. Don’t complain, take action.  
+2\. **Focus and concentration** - Almost everyone complains about how attention timespan is getting shorter. As a result of consuming short form content, youtube shorts, reels, tweets. Jigsaw is one of the ways to turn it other way around. Don’t complain, take action.  
 3\. **No screen time** - Gives you opportunity to be away from doom scrolling.  
-4\. **Sense of achievement** - Each completed puzzle gives sense of achievement.  
+4\. **Sense of achievement** - Each completed puzzle gives sense of achievement.
 
 ## Can help improve skills we take for granted.
 
@@ -96,15 +95,14 @@ All that being said, if you are still interested in knowing the why’s. Here is
 
 2\. Untangle - Untangle is a space in Chennai. Having wide range of puzzles. They have 2 centres in Chennai. One in T-nagar and another in Taynampet Chennai.
 
-3\. Online WhatsApp community by Playful pursuits.  
+3\. Online WhatsApp community by Playful pursuits.
 
-##   
 Puzzle once solved is waste ? Won’t do it again?
 
-1\. There is a whatsapp group to sell your pre-loved puzzles. You can either sell the puzzle, or if multiple people are interested in buying. You can auction. Group has rules everyone adheres too. Group runs on trust. Shipping cost is usually born by the person buying your puzzle.  
-  
-2\. Ever considered framing puzzles ? They look beautiful, and cardboard puzzles can be framed.  
-  
+1\. There is a whatsapp group to sell your pre-loved puzzles. You can either sell the puzzle, or if multiple people are interested in buying. You can auction. Group has rules everyone adheres too. Group runs on trust. Shipping cost is usually born by the person buying your puzzle.
+
+2\. Ever considered framing puzzles ? They look beautiful, and cardboard puzzles can be framed.
+
 3\. Puzzle Library - There is a whatsapp community i.e Puzzle Library. You can put on their page. Share your puzzle with others, try out puzzles posted by others. It has some rules regarding how can one participate in it. I haven’t explored it yet.
 
 That’s all. This was more of a brain dump about everything I learned over time about jigsaw puzzles. On and off seeing pictures couple of friends, cousins did reach out and show interest. If you have been still at the fence. This is your sign, its never too old to try anything new. 😊
