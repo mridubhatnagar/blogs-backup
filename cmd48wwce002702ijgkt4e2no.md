@@ -48,13 +48,13 @@ Started with solving a cardboard puzzle of 150 pieces. Did 4-5 more puzzles of 1
 
 ## Jigsaw Puzzle brands available in India?
 
-1\. Jigsaw Nation - Sells cardboard puzzles. Puzzles available through their own website.  
-2\. Frank - Sells cardboard puzzles. Puzzles are available on Amazon India.  
-3\. 91Knots - Wooden puzzles. Puzzles are available on Amazon.  
-4\. Ameya Games - Wooden Puzzles. Puzzles are available on their website as well as Amazon. Premium quality when it comes to pieces.  
-5\. Galison - Galison is not a Indian brand. Though, their puzzles are available on Amazon India. Usually, known for puzzles ranging between 500-1000 pieces. Very pretty puzzle designs.  
-6\. PieceUp - Sells cardboard puzzles, fixed piece count 80 pieces. High quality designs. You can reach out to them via their Instagram handle. Women owned.  
-7\. Puzzlist.co - Newly opened brand based out of Chennai. A part of earnings from the puzzles is given to Cancer care foundation (I don’t know the foundation name) and a part to the puzzle artist. Women owned, family run small business.
+1\. **Jigsaw Nation** - Sells cardboard puzzles. Puzzles available through their own website.  
+2\. **Frank** - Sells cardboard puzzles. Puzzles are available on Amazon India.  
+3\. **91Knots** - Wooden puzzles. Puzzles are available on Amazon.  
+4\. **Ameya Games** - Wooden Puzzles. Puzzles are available on their website as well as Amazon. Premium quality when it comes to pieces.  
+5\. **Galison** - Galison is not a Indian brand. Though, their puzzles are available on Amazon India. Usually, known for puzzles ranging between 500-1000 pieces. Very pretty puzzle designs.  
+6\. **PieceUp** - Sells cardboard puzzles, fixed piece count 80 pieces. High quality designs. You can reach out to them via their Instagram handle. Women owned.  
+7\. **Puzzlist.co** - Newly opened brand based out of Chennai. A part of earnings from the puzzles is given to Cancer care foundation (I don’t know the foundation name) and a part to the puzzle artist. Women owned, family run small business.
 
 ![](https://cdn.hashnode.com/res/hashnode/image/upload/v1752564645046/88264fd2-53fb-4bcc-b86e-7412672bf6bf.jpeg align="center")
 
@@ -64,12 +64,12 @@ Started with solving a cardboard puzzle of 150 pieces. Did 4-5 more puzzles of 1
 
 ## Jigsaw Puzzle brands outside India?
 
-1\. Bits and Pieces - Cardboard puzzles, have puzzles with bigger piece size, different shapes. Available on Amazon US.  
-2\. Ceaco Puzzles - Cardboard puzzles, bigger piece size, different shapes. Usually puzzles are related to Disney characters. Available on their official website, Target US, Amazon US.  
-3\. Wentworth - Sells premium quality wooden puzzles. Brand is based out of UK. Puzzles are available on their official website. Piece shapes in particular are whimsical.  
-4\. PuzzleLab - Wooden puzzles, brand is based out of Canada. Has expensive puzzles, and challenging piece shapes and design. Usual piece count is 175 pieces, 300 pieces puzzle  
-5\. StumpCraft - Sells premium quality wooden puzzles. Puzzles are expensive. Piece count range from less than 100 to 600 & up.  
-6\. Ravensburger - Brand based out of US, sells premium quality cardboard puzzles. From 99 pieces to 1000+ pieces. Puzzles available on Amazon US, brands official website.  
+1\. **Bits and Pieces** - Cardboard puzzles, have puzzles with bigger piece size, different shapes. Available on Amazon US.  
+2\. **Ceaco Puzzles** - Cardboard puzzles, bigger piece size, different shapes. Usually puzzles are related to Disney characters. Available on their official website, Target US, Amazon US.  
+3\. **Wentworth** - Sells premium quality wooden puzzles. Brand is based out of UK. Puzzles are available on their official website. Piece shapes in particular are whimsical.  
+4\. **PuzzleLab** - Wooden puzzles, brand is based out of Canada. Has expensive puzzles, and challenging piece shapes and design. Usual piece count is 175 pieces, 300 pieces puzzle  
+5\. **StumpCraft** - Sells premium quality wooden puzzles. Puzzles are expensive. Piece count range from less than 100 to 600 & up.  
+6\. **Ravensburger** - Brand based out of US, sells premium quality cardboard puzzles. From 99 pieces to 1000+ pieces. Puzzles available on Amazon US, brands official website.  
 7\. NewYork Puzzle Company - Based out of US, sells cardboard puzzles. Piece count range starts from mini puzzles (99-100 pieces) to 1000 pieces puzzles.
 
 ## Why jigsaw puzzles?
@@ -85,19 +85,19 @@ All that being said, if you are still interested in knowing the why’s. Here is
 
 ## Can help improve skills we take for granted.
 
-1\. Fine Motor skills  
-2\. Hand-Eye coordination.  
-3\. Attention to detail - Trains the brain to notice subtle differences in color, shape, pattern.
+1\. **Fine Motor skills**  
+2\. **Hand-Eye coordination**.  
+3\. **Attention to detail** - Trains the brain to notice subtle differences in color, shape, pattern.
 
 ## Puzzle Communities in India?
 
-1\. Playful Pursuits - Community is based out of Bangalore. Hosts puzzle meetups every Monday, at Underline center. People of all age groups are welcome. Has wide variety of puzzle collection. From varying piece count, several brands, offering different level of challenge.
+1\. **Playful Pursuits** - Community is based out of Bangalore. Hosts puzzle meetups every Monday, at Underline center. People of all age groups are welcome. Has wide variety of puzzle collection. From varying piece count, several brands, offering different level of challenge.
 
-2\. Untangle - Untangle is a space in Chennai. Having wide range of puzzles. They have 2 centres in Chennai. One in T-nagar and another in Taynampet Chennai.
+2\. **Untangle** - Untangle is a space in Chennai. Having wide range of puzzles. They have 2 centres in Chennai. One in T-nagar and another in Taynampet Chennai.
 
 3\. Online WhatsApp community by Playful pursuits.
 
-Puzzle once solved is waste ? Won’t do it again?
+## Puzzle once solved is waste ? Won’t do it again?
 
 1\. There is a whatsapp group to sell your pre-loved puzzles. You can either sell the puzzle, or if multiple people are interested in buying. You can auction. Group has rules everyone adheres too. Group runs on trust. Shipping cost is usually born by the person buying your puzzle.
 
@@ -107,6 +107,6 @@ Puzzle once solved is waste ? Won’t do it again?
 
 That’s all. This was more of a brain dump about everything I learned over time about jigsaw puzzles. On and off seeing pictures couple of friends, cousins did reach out and show interest. If you have been still at the fence. This is your sign, its never too old to try anything new. 😊
 
-May mindfully putting pieces in place give you peace and happiness. Happy puzzling. 🧩
+**May mindfully putting pieces in place give you peace and happiness. Happy puzzling.** 🧩
 
 ![](https://cdn.hashnode.com/res/hashnode/image/upload/v1752566446427/7b1c1bad-97e4-4ef6-a0cb-0c02a2fbada1.jpeg align="center")
