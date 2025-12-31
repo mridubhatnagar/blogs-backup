@@ -28,7 +28,7 @@ Along similar lines there is another book Ladies Coupe by Anita Nair. The book i
 
 Ofcourse like every other book lover. There are books I purchased and didn’t read. It was “We The Citizens. Strengthening the Indian Republic” by Khyati Pathak, Anupam Manur, Pranay. A bunch more are there from previous years. 😄
 
-In between the year for months. I didn’t pick up any book. Attention was divided between several things. Marriage season, work, errands and what not. Skipped all the book meetups, no travel. Fast forward to December.
+In between the year for months. I didn’t pick up any book. Attention was divided between several things. Marriage season, work, errands, stress and what not. Skipped all the book meetups, no travel. Fast forward to December.
 
 What bought me back to reading after a long gap was Fredrick Beckman again. Sunlight, a cup of hot coffee, a loved book in hand and a chocolate cookie can make you happy. The year comes to an end and I again found Beckman books in my hand. Novel A Deal of Lifetime followed by Every Morning The Way Home Gets Longer and Longer. 🙂
 
