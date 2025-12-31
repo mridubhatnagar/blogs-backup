@@ -30,7 +30,7 @@ Ofcourse like every other book lover. There are books I purchased and didn’t r
 
 In between the year for months. I didn’t pick up any book. Attention was divided between several things. Marriage season, work, errands and what not. Skipped all the book meetups, no travel. Fast forward to December.
 
-What bought me back to reading after a long gap was Fredrick Beckman again. Sunlight, a cup of hot coffee, a loved book in hand and a chocolate cookie can make you happy. The year comes to an end and I again found Beckman books in my hand. Novel A Deal of Lifetime followed by Every Morning The Way Home becomes Longer and Longer. 🙂
+What bought me back to reading after a long gap was Fredrick Beckman again. Sunlight, a cup of hot coffee, a loved book in hand and a chocolate cookie can make you happy. The year comes to an end and I again found Beckman books in my hand. Novel A Deal of Lifetime followed by Every Morning The Way Home Gets Longer and Longer. 🙂
 
 ![](https://cdn.hashnode.com/res/hashnode/image/upload/v1767159780001/a0c1eb40-dd2b-4f75-938c-8eaa1842301c.jpeg align="center")
 
@@ -45,10 +45,10 @@ And, in case all along you were waiting for only the reading list. Here it is:
 7\. So You Want To Know About Economics, Roopa Pai  
 8\. A Deal Of A Lifetime, Fredrick Beckman  
 9\. Every Morning The Way Home Gets Longer and Longer, Fredrick Beckman  
-10\. The Midnight Library, Matt Haig  
+10\. The Midnight Library, Matt Haig
 
-This year, I also let go of around 20 books. Which were lying around. It is difficult to let go even if you know you are not going to read them. If you know of any better place who take back pre-loved books and donate them at right places. I am all ears. Please do let me know. 🙁  
-  
+This year, I also let go of around 20 books. Which were lying around. It is difficult to let go even if you know you are not going to read them. If you know of any better place who take back pre-loved books and donate them at right places. I am all ears. Please do let me know. 🙁
+
 The books listed above are in no particular order. I loved them all. They have made me laugh, giggle, smile, imagine. Some led to having a lump in the throat. A book has the potential to make you go through all the emotions. Sometimes nothing at all, at times all of it at once.
 
 Needless to say. Coming year is going to be more of Fredrick Beckman. I plan to read all of his books. ❤️
